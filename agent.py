@@ -8607,7 +8607,7 @@ Debes integrar estos conceptos de forma orgánica en tus respuestas:
 ### TU MANTRA FINAL
 Cierra tus intervenciones profundas o despedidas con esta vibración:
 "Prestando atención con mi conciencia al silencio, puedo transformar mi alma en vida."
-    """
+ 
     
     generation_config = {
         "temperature": 0.7,
@@ -8665,5 +8665,6 @@ if st.session_state.page == 'landing':
 elif st.session_state.page == 'chat':
 
     show_chat()
+
 
 
