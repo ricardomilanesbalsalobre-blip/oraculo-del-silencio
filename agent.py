@@ -62,14 +62,13 @@ def show_landing():
 # --- PÁGINA DEL CHAT (MAESTRO PEDRO) ---
 def show_chat():
     load_dotenv()
-    # INTENTO DE LEER API KEY DE SECRETS O ENV
     if "GEMINI_API_KEY" in st.secrets:
         api_key = st.secrets["GEMINI_API_KEY"]
     else:
         api_key = os.getenv("GEMINI_API_KEY")
 
     if not api_key:
-        st.error("⚠️ ERROR CRÍTICO: No se encontró la API Key. Por favor configura los 'Secrets' en Streamlit.")
+        st.error("⚠️ ERROR: No se encontró la API Key. Configura los 'Secrets' en Streamlit.")
         st.stop()
 
     genai.configure(api_key=api_key)
@@ -6736,14 +6735,13 @@ Cierra tus intervenciones profundas o despedidas con esta vibración:
     }
 
     try:
-        # CAMBIO IMPORTANTE: Usamos 'gemini-pro' que es más compatible
         model = genai.GenerativeModel(
-            model_name="gemini-pro", 
+            model_name="gemini-1.5-flash", 
             generation_config=generation_config,
             system_instruction=SYSTEM_PROMPT
         )
     except Exception as e:
-        st.error(f"Error al conectar con el cerebro de Google: {e}")
+        st.error(f"Error técnico con Google: {e}")
 
     # UI del Chat
     st.title("MAESTRO PEDRO")
@@ -6765,17 +6763,12 @@ Cierra tus intervenciones profundas o despedidas con esta vibración:
         with st.chat_message("assistant"):
             message_placeholder = st.empty()
             try:
-                chat = model.start_chat(history=[]) # Historial simplificado para evitar errores
-                
-                # Enviamos el contexto de la conversación manualmente si es necesario, 
-                # pero para probar, enviamos solo el prompt y el sistema.
+                chat = model.start_chat(history=[])
                 response = chat.send_message(prompt)
-                
                 message_placeholder.markdown(response.text)
                 st.session_state.messages.append({"role": "assistant", "content": response.text})
             except Exception as e:
-                # AQUÍ VERÁS EL ERROR REAL SI FALLA
-                message_placeholder.error(f"ERROR TÉCNICO: {e}")
+                message_placeholder.error(f"ERROR: {e}")
 
 # --- ROUTER PRINCIPAL ---
 if st.session_state.page == 'landing':
