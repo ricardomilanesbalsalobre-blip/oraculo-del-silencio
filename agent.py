@@ -8615,7 +8615,7 @@ Cierra tus intervenciones profundas o despedidas con esta vibración:
 
     try:
         model = genai.GenerativeModel(
-            model_name="gemini-1.5-flash", 
+            model_name=""gemini-1.5-flash-latest", 
             generation_config=generation_config,
             system_instruction=SYSTEM_PROMPT
         )
@@ -8747,5 +8747,6 @@ if st.session_state.page == 'landing':
 elif st.session_state.page == 'chat':
 
     show_chat()
+
 
 
