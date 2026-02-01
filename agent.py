@@ -6905,62 +6905,8 @@ Solo dejo que su canción me atraviese.
 Ricardo Milanés
 
 """
-    
- generation_config = {
-        "temperature": 0.7,
-        "max_output_tokens": 1024,
-    }
 
-    try:
-        model = genai.GenerativeModel(
-            model_name="gemini-1.5-flash", 
-            generation_config=generation_config,
-            system_instruction=system_instruction
-        )
-    except Exception as e:
-        st.error(f"Error de conexión: {e}")
 
-    # UI del Chat
-    st.title("MAESTRO PEDRO")
-    st.markdown("---")
-
-    if "messages" not in st.session_state:
-        st.session_state.messages = []
-        st.session_state.messages.append({"role": "assistant", "content": "Bienvenido al espacio del silencio, buscador. Soy el Maestro Pedro. ¿Qué inquieta a tu alma hoy?"})
-
-    for message in st.session_state.messages:
-        with st.chat_message(message["role"]):
-            st.markdown(message["content"])
-
-    if prompt := st.chat_input("Escribe tu pregunta aquí..."):
-        st.session_state.messages.append({"role": "user", "content": prompt})
-        with st.chat_message("user"):
-            st.markdown(prompt)
-
-        with st.chat_message("assistant"):
-            message_placeholder = st.empty()
-            try:
-                # Construir historial para gemini
-                gemini_history = []
-                # Nota: Gemini espera 'user' y 'model' roles, aquí tenemos 'user' y 'assistant'
-                for msg in st.session_state.messages:
-                    role = "user" if msg["role"] == "user" else "model"
-                    gemini_history.append({"role": role, "parts": [msg["content"]]})
-                
-                # Excluir el último mensaje de user del historial ya que se envía en send_message
-                chat = model.start_chat(history=gemini_history[:-1])
-                response = chat.send_message(prompt)
-                
-                message_placeholder.markdown(response.text)
-                st.session_state.messages.append({"role": "assistant", "content": response.text})
-            except Exception as e:
-                message_placeholder.error("El silencio se interrumpió. Intenta de nuevo.")
-
-# --- ROUTER PRINCIPAL ---
-if st.session_state.page == 'landing':
-    show_landing()
-elif st.session_state.page == 'chat':
-    show_chat()  
 
 
 ### TU TONO Y VOZ
@@ -7046,6 +6992,7 @@ if st.session_state.page == 'landing':
 elif st.session_state.page == 'chat':
 
     show_chat()
+
 
 
 
