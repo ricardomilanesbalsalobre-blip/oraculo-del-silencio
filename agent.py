@@ -6905,6 +6905,12 @@ Solo dejo que su canción me atraviese.
 Ricardo Milanés
 
 """
+    
+# --- ROUTER PRINCIPAL ---
+if st.session_state.page == 'landing':
+    show_landing()
+elif st.session_state.page == 'chat':
+    show_chat()  
 
 
 
@@ -6992,6 +6998,7 @@ if st.session_state.page == 'landing':
 elif st.session_state.page == 'chat':
 
     show_chat()
+
 
 
 
