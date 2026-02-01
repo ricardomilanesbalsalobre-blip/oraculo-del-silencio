@@ -3505,21 +3505,10 @@ Que nunca más te sientas solo, porque este libro, como un humilde arroyo de luz
 Somos uno. Siempre lo hemos sido. Y en cada latido tuyo, yo también respiro. 
 
 
-
-
-
 El Canto Invisible
 del Alma
 
 
-
-
-
-
-Ricardo Milanés
- 
-
- 
 Prólogo. 
 El amor es la materia invisible de la que todo está hecho. Algunos lo buscan en los templos, otros en los astros, otros en la ternura de una mirada que los sostiene en silencio. Este libro nace de esa búsqueda y, al mismo tiempo, de ese hallazgo. 
 Latidos que se han vestido de palabras para dejar constancia de un viaje interior. 
@@ -3529,7 +3518,6 @@ Son huellas del ser enamorado, ese que se atreve a abrirse sin medida, aunque en
 La poesía, cuando nace de lo profundo, no es adorno ni artificio: es revelación. En estas páginas, el poeta no juega a esconderse, sino a transparentarse, a dejar que la palabra se convierta en espejo. Por eso, cada verso aquí escrito no pertenece solo a su autor: pertenece también a quien lo lee, a quien se atreve a reconocerse en él. 
 Que al abrir este libro te sientas invitado no solo a leer, sino a respirar; no solo a admirar, sino a dejar que cada imagen se pose en tu pecho como un ave en su nido. Porque lo que aquí se entrega no son simples poemas, sino destellos de lo eterno que palpita en todos.
  
-
 Es más fácil decir adiós, que amarte y llevarte en el corazón.
 Es más fácil, sentir celos y envidia de palabras y miradas, que comprender la causa con amor.
 Es más fácil decir te quiero, que dejar hablar el corazón.
@@ -3541,131 +3529,59 @@ Es más fácil, regocijarse en la conmiseración que genera la enfermedad, que a
 No me quieras ni me ames, si en tu corazón solo existen cenizas de nuestro amor.  Quiero que seas valiente y me digas a dios, si en tu alma y corazón, no existe ni una posibilidad de amarme.
  No me digas que me quieres, pues solo en mí, esa palabra significa dependencia y no amor.
  
-
-
-
-
-
 No hay nada más peligroso que un poeta enamorado, pues dispara con munición hecha con la imaginación y alimentada con las energías de su ser, que son puro amor divino. Creando escaleras de ilusiones y fragancias celestiales en los seres desesperados por amor. 
  
-
-
 Quiero que me hables bajito y muy cerca de mi mejilla. Dime cosas bonitas, dime cosas de amor que me quiten esta presión que existe en mi pecho, que ahoga mi voz y paraliza mi vida. 
 Dime cosas bonitas, que el volcán que existe en mi interior está preñado de amor y, como un río de aguas bravas, saltará de mi pecho para inundar tu ser con un suspiro de mi amor. 
 Dime cosas bonitas que inspiren mi existir, dime cosas de amor muy bajito a mis oídos, que la melodía de tu voz hace temblar mi esencia, irradiando todo mi amor sobre ti. 
  
-
-
-
-
-
 Quiero decirte bajito y al oído que eres lo más bonito de mi vida. 
 Quiero decirte bajito que te amo, mi amor.  
 Quiero contarte cosas de amor que alegren tu vida y enamoren tu sentir. 
 Quiero amarte despacito para embriagarnos de amor. 
  
-
-
-
-
-
-
 Tus ojos son como la luz del sol; suave tu piel como la más hermosa de las sedas y delicada como pétalos de rosas. Tus labios son un océano de amor, donde naufraga mi sentir, sediento de tus besos, y mi ser queda embriagado con tu amor. 
  
-
-
-
-
-
 
 Hace tiempo te dije que tu silencio hacía más daño a mi corazón que tus
 palabras. Ayer tu silencio prendió fuego a mi alma, convirtiendo mi corazón en cenizas… 
 Hoy solo puedo decirte que tu silencio sea el canto de tu libertad.  
- 
 
-
-
-
-
-
-
+ 
 Cuando te miro, mi ser vuela en busca de tu interior para embriagarme con tu latido de amor. 
  
-
-
-
-
-
 
 Mis labios extrañan tus besos, mi corazón suspira por tu amor, pero en la distancia mi alma, inspirada por mi espíritu, te abraza para disolverme en tu interior creando melodías de amor. 
  
 
-
-
-
-
 Hoy me di cuenta de que la estrella que buscaba desde niño la tenía delante de mí, pero al alejarme de ti comprendí y sentí que tu luz cegó mis ojos. 
 Ahora que lejos estoy de ti, veo tu luz de amor que vuelve a iluminar mi camino hacia ti, esperando poder mirar tu rostro y que tu mirada no me vuelva a dejar ciego de amor. 
- 
 
-
-
-
+ 
 Respira profundamente, observa atentamente, siente tu presencia cómo inunda toda tu conciencia. Ahora sigue respirando, manteniendo tu atención en el silencio.
  Mira en tu interior y siente el delicado susurro de tu esencia, canto inaudible de fragancias de rosas, por el cual tu ser ilumina tu conciencia creando la luz en tu mente e irradiando el amor en el pecho. 
  
 
-
-
-
-
-
 Dulce jazmín, siento paz en mi interior, pues el latido de tu ser cubre mi espíritu con la suave fragancia de tu amor. 
  
-
-
-
-
-
 
 Fuego en mi pecho, arde mi corazón con las llamas que surgen de mi interior. 
 Estoy escribiendo en el aire tu nombre, mi amor, para que Dios las vea y te proteja con su bendición de amor.
  
 
-
-
-
-
-
 Mi vida, eres la dulce savia que fluye por mis venas y hace latir a mi corazón, dulce néctar que tus besos inundaron mi ser de amor.
  
-
-
-
-
 
 Vuelo por los aires de la vida, revoloteo como las hojas al viento y con la suavidad de los pétalos de las rosas acaricio tus sueños y quisiera robártelos, pero no soy ladrón de sueños, pero sí de corazones… 
 Y yo te robé tu corazón y si lo quieres tendrás que darme lo más oculto de tu ser, que es tu amor. 
  
 
-
-
-
-
 Hoy te acerco a mi espíritu, así como las olas del mar suaves acarician tu cuerpo con ese vaivén melodioso, igual que el vaivén que hace palpitar tu pecho y navega la sangre por tus venas dándote la vida. Así, mi amor, sabes que eres el vaivén que mi ser necesita para nutrirme de vida, pues tu sentir es el manantial de amor que nutre mi existencia. 
  
-
-
-
-
 
 Mi cuerpo no puede ir en este ahora junto a ti, si puedo ir como alma y con un toque mágico de mi ser besar tus labios, acariciar tus mejillas y darte un abrazo de amor infinito para que nunca me olvides en la eternidad. 
 Así mi vida, hoy visitaré tu cama y sabrás de mí al despertar, pues mi perfume quedará impregnado en tu piel, mi amor. 
  
-
-
-
-
 
 Silencio en mi mente, la conciencia como la suavidad de las olas del mar y
 mis emociones remanso de quietud y paz. 
@@ -3680,10 +3596,9 @@ que tan solo con una mirada logre tocar tu corazón, aquella persona que
 tan solo con un beso haga estremecer tu cuerpo y que por muchos años
 que pasen sea capaz de mirarte a los ojos y decirte muy tiernamente:
 
-"Te amo, mi amor". 
+Te amo, mi amor. 
 Eso es la felicidad… Y más aún… La felicidad, para mí, es simplemente cogerte la mano y sentir la ternura que te hace vibrar tu alma, acariciar tu pelo, acariciar tu mejilla, la suavidad y la ternura que brindan tus ojos cuando miran los míos. 
 Eso es felicidad.
-
 
 
 Late mi corazón, impulsos que van evaporando la silueta de mi alma;
@@ -3694,35 +3609,22 @@ sabrosas frutas de la pasión, con ellas podrás alimentar tu corazón. De
 esta forma y desde lo más oculto de tu corazón Te quiero.
  
 
-
-
-
-
 En tu rostro se refleja la ternura y timidez de un corazón dolorido. Mi
 amor, con mi sonrisa y mi voz quiero quitar de tu interior el sufrir, y con
 mi sonrisa de amor transformar tu interior en felicidad. Más con mis
 latidos, solo el amor reinará en tu interior. 
  
 
-
-
 Veo una luz, luz que hace temblar mi corazón, luz que me hace volar, luz
 que desprenden tus ojos, y son la pasión de tu amor y yo, loco, voy de temblor en mi corazón en busca de tus besos de pasión, mi amor… 
 Eres para mí como la flor de la mañana que empieza a abrir sus pétalos, y con el rocío se impregna de gotitas de agua para exhalar su fragancia de amor al viento. Así eres tú para mí, que con los latidos de tu corazón inundas mi alma con la suavidad de tu amor. 
  
-
-
-
-
 
 Te extraño, tú que no sabes de mis besos, te extraño, tú que no sabes de
 mi perfume, de mi mirada, de mis caricias, del latido de mi corazón. 
 En la distancia yo sé de ti y de tu amor por mí, y con máxima delicadeza
 de mi corazón te envío mis latidos de amor. 
  
-
-
-
 
 Mi bien amada, inspiras mi alma, tus labios como pétalos de amapolas,
 tus ojos profundos y verdes como el mar, tu sonrisa azul, esperanza como
@@ -3731,10 +3633,6 @@ estrellado que iluminan mi camino hacia tu corazón, rebosante de amor
 que inundas mi alma con tu mirada. Amor, mi lindo amor. 
  
 
-
-
-
-
 Mi amor, las estrellas en el cielo celosas están de la luz de tus ojos,
 porque iluminan mi alma y hacen florecer poemas de amor en mi
 corazón, para ti, mi dulce jazmín. 
@@ -3742,17 +3640,9 @@ Susurros de mi alma despiertan mi corazón, y abriendo mis ojos te inundo
 con todo mi amor. 
  
 
-
-
-
-
 Cuando me miras, siento la ternura y calidez de tu corazón. Ya que tu mirada penetra en lo más profundo de mi alma, y cuando tus besos
 acarician mis labios, mi espíritu se vuelve niño bañado con tu amor. 
  
-
-
-
-
 
 En mi ser guardo un secreto, que será para ti si prestas atención a mi mirada, pues a través de mis pupilas se abren las puertas hacia mi interior, allí está mi secreto, mira bien, pues la vacuidad de mi ser se llenó con un fragmento de tu amor. 
  
@@ -3763,17 +3653,10 @@ soledad, soledad agridulce, la cual deleité lentamente para convertir mi ser en
 situación en la que esté para saborear lentamente la felicidad gozosa de ser
 nada, pues solo sintiendo tus latidos en mi ser dejo de ser nada para convertir mi corazón en fragancia de amor para enamorar tu corazón.
 
- 
-
-
 
 Tu dulce mirada hace temblar mi corazón, delicadas tus palabras como
 delicados perfumes acarician mi alma, dulce sabor a jazmín dejan tus labios en mi corazón, creando pálpitos de compasión a mi alrededor. 
  
-
-
-
-
 
 Silencio… silencio que llenas mi alma creando la vacuidad creadora de
 amor. Silencio roto por el latir de tu corazón. 
@@ -3781,18 +3664,10 @@ Vacuidad que yo utilizo para
 crear el sonido de luz que al llegar hasta ti te embriagará con mi amor. 
  
 
-
-
-
-
 Tengo el corazón en llamas, pues tu mirada le prendió fuego, y mi alma
 al sentir tu mirada descendió para avivar el fuego de mi corazón. 
 Así mi espíritu al ver el incendio que en mi pecho existe ha hecho de las dos la luz que iluminará tu corazón con mi amor.
  
-
-
-
-
 
 Pienso en ti, te llevo a mi corazón y siento paz… amor y gozo de amarte
 cada día más… te quiero aún con el tiempo y habiendo estado en el más
@@ -3800,17 +3675,9 @@ allá y en la luz, como ya sabes, sé que mi amor por ti es eterno y para
 siempre en la luz de nuestras almas.
  
 
-
- 
-
-
-
 Como un río de aguas mansas, mi vida, bañará tu corazón con suave
 fragancia a flores, embriagará tu alma con mi amor. 
  
-
-
-
 
 Solo en contemplación de mi ser recuerdo el sonido de tu voz que hace
 latir mi corazón. Paseo por la calle y el aire acaricia mis mejillas, cierro los
@@ -3818,109 +3685,49 @@ ojos imaginando que son tus labios que besan mi rostro.
 Más al sentir el perfume de las flores, mi alma trae hacia mi corazón la fragancia de tu piel. Mi amor. Mi amor que lejos estás de mí y sin embargo te llevo en lo más profundo de mi ser… Mi amor… Mi amor. 
  
 
-
-
 Esta vida mía recorriendo los caminos, caminos de soledad, y hoy más que nunca no será más que nunca, pero mi amor extraño tanto tu voz, extraño tanto tu mirada, como extraño tus besos y tu piel. 
 Mi amor hoy más que nunca me haces falta y en este camino de soledad solo mi alma acaricia mi corazón recordando que algún día en este camino incierto podré besar tus labios tocar tu cara y tu pelo. Amor mi amor como te echo en falta. Camino incierto de mi vida un poema de amor es una caricia al corazón. 
  
-
-
-
-
-
-
 
 Tengo el corazón abierto, ácidos de locura recorren mis venas en busca del
 bálsamo de amor de tu corazón.
  
 
 
-
-
-
-
 Pétalos de rosas son tus labios, pues cuando los besos me hacen naufragar en un océano de amor.
  Inigualables caricias tus besos que vuelven loca mi razón y el corazón en su locura de amor solo quiere besarte eternamente. 
  
-
-
-
-
-
 
 Como no voy a estar enamorado de ti como el primer día si te he estado
 esperando toda una eternidad para estar hoy junto a ti. 
 Y en este eterno ahora te amo como si este fuese mi último aliento de vida de estar junto a ti. 
  
 
-
-
-
-
 Buscando en mi alma un poema para ti, no encuentro sentimientos o pensamientos donde apoyar mi atención, solo en la vacuidad de mi alma sitúo mi atención en ti, y solo de este modo soy el latido de mi vida que
 inunda todo tu ser, con la luz de mi espíritu que, al iluminar tu alma, te
 embriago con mis latidos de amor.
  
 
-
-
-
 La flor del jazmín, sencilla, más diría simple, con sus cinco pétalos blancos llenos de conocimiento. Pétalos frágiles como el amor que su fragancia inspira a mi alma, perfume que embriaga mis sentidos y me hace alcanzar el cielo y traerlo hacia mis amados hermanos, compartiendo con todos vosotros el perfume de mi alma que, con su perfume de jazmín, embriaga mi corazón donde reside todo vuestro amor.
  
-
-
-
-
-
-
 
 La fragancia de la vida es el latido de tu corazón, que con sus latidos me hace enloquecer de amor.
  
 
-
-
-
-
-
 Pálpitos en mi espíritu, como gotas de agua en una tormenta, caen sobre mi ser, así son los latidos de mi existencia, que transforman mi interior en fragancias de amor. 
  
-
-
-
-
-
 
 Te llevo tan, tan, tan dentro de mí, que no sé si eres el corazón o la sangre que brota de él, recorriendo todo mi ser… Más respirando el aire, vienen hasta mí las más exquisitas fragancias de amor, latidos de vida al respirar tu perfume de amor. 
  
 
-
-
-
-
-
-
 He convertido mi alma en almohada, en pétalos de azahar y jazmines, para que descanse tu corazón y enamorarlo con mi amor. 
  
-
-
-
-
-
-
 
 Te miro y únicamente veo la esencia de tu vida, que acaricia mi alma con la suavidad de los pétalos de las flores, y palpitando mi corazón te ha envuelto con mi amor. 
  
 
 
-
-
-
-
 Voy a escribir la melodía más bonita del mundo, para ti mi vida, y... Es, toc, toc, toc, esta es la más bella melodía, nacida desde lo más oculto de mi ser, para iluminar tu vida con la sinfonía de mi pecho. 
- 
-
-
-
 
 
 Quiero ser como el agua del mar,
@@ -3930,10 +3737,6 @@ corazón.
 Quiero ser como las olas del mar, para acariciar tu cuerpo y penetrar por cada poro de tu piel e inundar tu alma con las fragancias de mi corazón. 
 Quiero ser la espuma de las olas, que, al tocar tus labios, pueda entrar en tu boca y besar tu corazón. 
  
-
-
-
-
 
 Los susurros de tus latidos de amor
 han creado un terremoto en mi alma y
@@ -3946,18 +3749,10 @@ embriagado quedó por tus besos de
 pasión. 
  
 
-
-
-
-
 Te amo porque la luz de tu mirada ilumina mi interior. Te amo porque tu sonrisa hace volar mi imaginación. 
 Te amo porque tu ser cautivó mi espíritu. Te amo porque tu sentir, frágil como los pétalos de la rosa, inundó mi ser de compasión. 
 Te amo pues eres la razón de mi ser y mi pulso vital. 
  
-
-
-
-
 
 El amor es blando, penetrante como el agua y enloquecedor como la
 fragancia de las flores, pero fuerte al
@@ -3966,55 +3761,25 @@ Pues como perfume de flores, mi latir se expande en el aire en busca de tu
 corazón, para embriagarte con mi amor. 
  
 
-
-
-
-
-
 Quiero besarte los labios, quiero
 embriagarme de ti, siento que muero sin ti, necesito saber el sabor de tu miel. 
 Quiero latir contigo, mi amor, y sentirte muy cerca de mí: corazón, corazón que pierdo la razón; corazón, corazón, te amo como un loco de amor. 
  
 
-
-
-
-
-
-
 El viento trae la fragancia de la vida por toda la tierra, y su melodía es el amor. 
  
-
-
-
-
-
 
 Hay soledad, soledad que preñas mi vida de amor; soledad, soledad que
 acaricias mi alma con el sabor de mi gran amor, soledad. 
 Mi amor, ya nunca más estarás sola, pues mi corazón reina en tu interior. 
  
 
-
-
-
-
-
 Al despertar este amanecer, sentí que mi alma se marchó en la cola de un
 cometa en busca de la estrella más
 hermosa, que es tu corazón. 
  
 
-
-
-
-
 Melodía en mi ser que me lleva hacia lo más profundo de mi interior. Sintiéndome volar, vuelo sin alas, pero vuelo en alas de tu amor, que con su suave fragancia me lleva hacia ti. Tu afecto de pétalos de rosas embriaga mi espíritu, volviendo loco mi interior. 
-
- 
-
-
-
 
 
 Te contaré que en mi pasado me
@@ -4025,507 +3790,196 @@ por las fragancias de tu corazón que me
 hicieron perder la razón. Y como un loco canto mi canción. Te quiero tanto, amor; te quiero tanto, amor. 
  
 
-
-
-
-
-
 Si miras al cielo en la noche verás el
 firmamento. Pero si miras en tu interior
 me verás dentro. Así me gustas dentro de mi corazón: sabrosa fruta de la pasión que iluminas mi alma con el néctar más sabroso que embriaga mis labios con tu sabor. 
  
 
-
-
-
-
-
-
 Vida mía, solo sé hablarte de los latidos. ¿Y sabes por qué, mi vida? Porque tú te has convertido en mi latido. 
  
-
-
-
-
-
 
 Amor, voy mirando en mi interior, no miro los pensamientos ni el mundo de las ideas, me identifico contigo y miro en mi interior buscándote y sé que estás ahí. Me miras e iluminas mi interior y puedo crear el poema más bello para tu alma, con las fragancias de mi amor.
  
 
-
-
-
-
-
 Cómo decirte que mi vida tiene razón de ser, cuando siento la cálida voz de tu alma en mi espíritu, recitándome los más bellos poemas de amor que tú necesitas oír de mí, para iluminar tu corazón con mi amor. 
  
-
-
-
-
-
-
 
 Mi bien amada, la esencia de mi vida, celosamente guardo para cuando tus lindos labios acaricien los míos, para impregnar tu corazón con la suave fragancia de mi amor. 
  
 
-
-
-
-
-
-
 Se me derramó la vida a través de mi corazón y, como agua de un río salvaje, recorre los caminos tras tu corazón.
  
- 
-
-
-
-
-
 
 En el jardín de mi corazón existe una flor para ti, pero solo será tuya si buscas bien en ti. 
  
 
-
-
 En esta madrugada… sentado frente al mar, la suave brisa acaricia mi cuerpo dejándome el olor a mar; acariciaban mi piel las gotitas de agua de las olas que me hacían recordar la ternura de tus besos húmedos y cálidos, más con esa delicadeza de tus labios que me transportan al centro de tu corazón. Así, como la brisa del mar y la caricia de sus gotitas en mi rostro, llega tu amor hasta mi alma, sintiendo que el tiempo y la distancia de estar tanto tiempo lejos de ti no existen en mi corazón. Mi amor…
  
- 
-
-
-
-
 Miro tu rostro, miro tus ojos y me dejo absorber por tus pupilas y sin voluntad para oponer resistencia penetro en tu interior, creando en mi corazón estallidos de amor por tu sentir. Sentir que me hace partícipe de tu sufrir y, con todo mi amor desde tu interior, ejecuto melodías de amor para que desaparezca tu dolor.
  
- 
-
-
-
-
 
 Hoy siento la llamada del aire, quiere llevar mi alma lejos de esta tierra para alivio de mi espíritu, y como náufrago en el océano del sufrimiento me dejo llevar entre los remolinos que va creando a su paso el aire. 
  
 
-
-
-
-
-
 Me despido de ti con un roce de mis labios en tu boca. Adiós, mi amor, te llevaré muy dentro de mi alma y cuando esté en la oscuridad de mi ser te recordaré como recuerdo el latido de mi corazón.
  
- 
-
-
-
-
 
 Salgo en busca de la niebla, quiero sentir su rocío en mi rostro, quiero sentir cómo la niebla penetra en mis pulmones para nutrir las semillas de amor que encierra mi alma y darte sus flores de amor para embriagar tu corazón. 
  
 
-
-
-
-
-
-
 He convertido mi alma en una almohada de azahar y jazmines, pétalos de amor, para que descanse tu corazón y enamorarlo con mi amor. 
  
-
-
-
-
-
 
 El canto de mi alma reverbera en mi corazón creando arritmias de amor y, como oleadas de un mar furioso, quiero llegar hasta las playas de tu ser para desembarcar el guerrero osado y llenar tus mejillas de besos apasionados. 
  
 
-
-
-
-
-
 Triste y desolada está mi ser que suspira por una mirada. Dios, cuánto dolor en mi pecho encerrado está, pues solo pido una mirada de tu sentir. 
  
- 
-
-
 
 Los ecos del aliento de la vida hacen palpitar tu corazón creando la suave melodía de tu manifestación. Y… yo suspiro por tenerte muy cerca de mí para sentir en mi alma tu latir; así, al sentir tu corazón en mi interior, la magia de mi alma creará fragancias de amor y luz para que tú te manifiestes por medio de la intuición creando a tu alrededor la magia del amor.
  
- 
-
-
-
-
-
 
 Late mi alma, pienso en ti, siento paz y la comparto con tu corazón para que no sientas temor… mi amor. 
  
 
-
-
-
-
-
-
 La verdad solamente tiene un camino: el latido de tu corazón que, aunque tú no seas consciente de él, él sí es consciente de ti. 
  
-
-
-
-
 
 Cada latido de mi corazón es un manantial de ácido que va disolviendo mi alma; lentamente voy sintiendo tu alejamiento, la sin razón de que ya tu corazón no siente nada por mi amor. Triste y desolado, como el pequeño que huérfano quedó y loco por encontrar el calor de su amada madre recorre los caminos. Así me has dejado al no sentir tu amor. 
  
 
-
-
-
-
-
 Hoy, más que nunca, extraño tu cálido latir, mi amor, dulce pasión, los besos de tus labios que hacen latir mi espíritu como el magma fluye en el centro de la tierra. Así, vida mía, mi alma se derrite por los besos de amor.
  
-
-
-
-
-
 
 Mi amada, como un rayo llegaste a mi vida y, con tu mirada de amor, hiciste de mi corazón fragancias de sonidos que, al esparcirse en el espacio, van pintando tu nombre con los colores del arcoíris en el aire. Más tu sonrisa enamora mi alma con tu cálida mirada. 
  
 
-
-
-
-
-
 Busco en mi pecho el latido de mi corazón. Dios, ¿dónde lo perdí? Ahora estoy mirando cerca de mí, loco voy por los caminos y pueblos sintiendo los latidos de mi corazón en cada manifestación de la vida. Locura divina al sentir mi corazón dentro de ti. 
  
-
-
-
-
 
 
 La luz del Sol palidece ante el resplandor de tus ojos, mi vida. Tu mirada, cálida y penetrante, luz que ilumina mi alma. Amada mía, ternuras en mi corazón creas como fragancias de flores que se esparcen en el aire para llenar tu corazón con mi amor. 
  
 
 
-
-
-
-
 Amor mío, quiero hablarte del temblor que siento en mi pecho cuando estoy lejos de ti, pues hasta mi cuerpo siente temor. Pero mi ser, con una mirada de compasión, tranquiliza mi pecho y me hace sentir que tú y yo somos uno en cada latido de amor. 
-
- 
-
-
-
-
 
 
 Mi corazón se inunda con tu belleza, reflejo de tu alma, y tu mirada limpia y hermosa más la luz de tu espíritu se expande con tu sonrisa, sonrisa de puro amor, hermosa belleza cautivadora de corazones… de amor y compasión se llena mi espíritu.
  
 
-
-
 Quiero decirte que, en las cavernas de mi corazón, mi sangre se ha convertido en magma incandescente y ha fundido mi alma y corazón. Debes saber que ya no te puedo querer ni tampoco amar, pues mi corazón y alma en esencia vital se han convertido. Ahora tú ocupas ese lugar en el centro de mi ser, pues los latidos que generas en mi pecho hacen fluir al exterior mi alma y corazón en fragancias de amor. Tú que palpitas en mi interior, ¿cómo te puedo querer si tu existir es la razón de mi ser, corazón? 
  
-
-
-
-
-
-
 
 Tengo el universo preñado en mi corazón, esperando que tú, mi amor, vengas a pedir tu regalo envuelto en perfume de mi amor. 
  
 
-
-
-
-
-
-
 Tu sonrisa es el amanecer que despierta mi corazón. Cada rayo es un latido, cada destello un verso que ilumina mi alma.
  
- 
-
-
-
-
-
 Sabor a ti me quedó en mis labios, sabor de amor me dejó tu piel como dulce melocotón. Solo siento en mi corazón el néctar que embriagó mis labios con tu amor.
  
-
- 
-
-
-
 
 Suave latir el de mi corazón cuando pienso en ti, caricias de mi palpitar que besan tus dulces labios y que me embriagan como el néctar del jazmín. Mi amor, dulce tu mirada que toca mi alma con el susurro del latido de tu corazón. Te amo… 
  
 
-
-
-
-
-
-
 Tu amor es el fuego que enciende mi alma. Cada chispa es un latido, cada llama un verso que quema mi corazón por ti. 
  
 
-
-
-
-
-
-
 En la quietud de la noche, mi corazón te busca. Tus latidos son mi guía, tu amor mi destino. Eres mi eternidad.
  
- 
-
-
-
-
 
 
 Como un pájaro libre, mi alma vuela hacia ti. Tus brazos son mi nido, tu amor mi cielo, y mi corazón canta por ti.
  
 
-
-
-
-
-
-
  Quiero pintar el cielo con los colores de mi amor por ti. Cada pincelada es un latido, cada tono un suspiro que lleva tu nombre.
  
- 
-
-
-
-
-
-
 Tu risa es el eco que resuena en mi alma. Cada nota de tu alegría despierta mi corazón, y cada sonrisa tuya florece mi amor. 
  
 
-
-
-
-
-
-
 Mi alma se pierde en la inmensidad de tus ojos. Cada estrella es un latido, cada destello un poema que escribo para ti.
  
- 
-
-
-
-
-
 
 Tus besos son el néctar que alimenta mi corazón. Cada roce es un latido, cada suspiro una pasión que enciende mi alma. 
  
 
-
-
-
-
-
-
 Amor es el río que fluye por mi alma. Cada corriente es una caricia, cada onda un verso que susurra mi pasión por ti. 
  
-
-
-
-
-
-
 
 Quiero tejer un manto de estrellas con mi amor por ti. Cada estrella es un deseo, cada hilo una caricia que envuelve tu corazón. 
  
 
-
-
-
-
-
 En el silencio de mi ser, tu presencia ilumina todo. Mi espíritu danza con el ritmo de tu alma, eterno baile de amor y luz. 
  
-
-
-
-
-
 
 Hoy abro mi alma de arriba abajo, para que me inunde tu vida y sienta la realidad de tu palpitar, palpitar de un corazón en soledad, soledad que se transforma en melodía con tu palpitar, irradiando una nueva energía en mi alma que ilumina mi caminar.
  
  
-
-
-
-
-
-
 Tu mirada crea caricias en mi alma dulce melodía de amor, caricias en mi
 corazón como suaves pétalos de flores.
 Dulce melodía del latir de tu corazón. 
  
-
-
-
-
-
 Qué daría yo por besar tus labios, labios con forma de pétalos de rosa, que excitan mi corazón. Corazón atormentado porque tus labios no saben de mi existir. 
 En mi pecho siempre existirá un lugar para tu palpitar, que me haga de nuevo sentir el perfume de la primavera en mis venas, creando la exaltación de mi amor, derramándose a mi alrededor.
  
- 
-
-
-
-
-
 Observo con atención el espacio
 existente entre tú y yo. Denso como la miel que endulza mis labios, con los perfumes de miles de flores, haciéndome sentir tu cálido amor en lo más profundo de mí.
  
- 
-
-
-
 Con curiosidad expectante miro hacia mi interior esperando, pero solo oscuridad y silencio siento, espero paciente a que el océano encerrado en una gota de mi sangre se derrame en mi corazón formando riadas de vida que inunden el desierto de mi personalidad. 
 Océanos de vida corren por mis venas creando remansos de paz que, tan solo con mi mirar, quiero tu corazón alcanzar.
  
-
-
-
-
  Quiero verte de nuevo y sentir tu calor junto a mí. Quiero sentir tu mirada, suave ternura de compasión que despierta mi corazón. Quiero que despierte mi corazón con el suave palpitar de tu alma.
  Tu alma con su fragancia me hace despertar del
 sueño celestial, para con mi despertar
 inundar tu caminar con miles de flores y perfumes del mundo celestial.
  
 
-
-
-
-
-
 Miro con ternura a través de mis
 pequeñas ventanas, siento mi palpitar, un palpitar lento, pero con sonido penetrante en todo lo que mi vista alcanza, sonido que transformo en color de mi amor. 
  
 
-
-
-
 Suave melodía que me hace mirar hacia mi interior e intentar sacar la más dulce melodía de amor para ti, mi dulce florecita de primavera, pétalos de dulce sabor, fragancias de amor que inundan mi corazón. Haciéndome volar por los océanos, que tomando los colores del sol me llevan hasta las orillas de tu corazón, y dándote todo mi amor, me evaporo en tus sentidos como el perfume de las flores en tu piel. Dulce es tu fragancia, que haces estremecer todo mi ser. 
  
-
-
-
-
-
 
 Viendo tu carita y esos ojos que hacen renacer el corazón, se ilumina mi alma. Luz que ciega mi razón, y como la fragancia de las flores, quiero que mi alma cubra t corazón. Corazón de frágiles pétalos que me vuelve loco de amor. 
  
 
-
-
-
-
-
 Nutres mi corazón con el aroma de tu amor. Amada, con tu compasión, ríos de amor brotan desde mi alma. Poemas de vida revestidos con perfume de amor, para aliviar tu pesar y enamorar tu espíritu con mi cantar de amor. 
  
 
-
-
-
-
 Me gusta la ternura de tu rostro, que como sutil perfume derramas caricias como pétalos de flores en mi corazón. Suaves y tiernos tus besos, como tierna la sonrisa de un recién nacido. Perfumes de amor que vuelven loco mi corazón. Taquicardias en
 mi latir al sentirte cerca de mí. Loco frenesí de amor que embriaga mi alma. 
- 
-
-
-
-
 
 
 Me siento nervioso, qué cosa tan extraña en mí, pero al descubrir en mi corazón tu perfume, mi amor, saltos de alegría da mi corazón. Fragancia que tu impronta deja plasmada en mi alma, y loco dejaste mi corazón.
  
 
-
-
-
-
  Suave fragancia de primavera eterna, que hace de mi despertar una nueva melodía de amor eterno que te dará el sustento, como el aire fresco de la mañana toda la vida y el latir de tu corazón. Así mi amor, yo te haré sentir en tu corazón mi nuevo amanecer, y envuelta en mi amor, sentirás la frescura de la primavera en tu
 latir, sintiendo todo el perfume de mi amor por ti.
  
-
-
-
-
-
 
 La felicidad que siento en mi pecho
 ahoga mi respiración, creando en mi
 corazón arritmias de amor que inundan mi mente de fragancias por catalogar de la flora celestial. 
  
-
-
-
-
-
-
 Suspendido en el espacio, como ave en el aire y con sus alas desplegadas, va mi alma acariciando los océanos del amor, y con mi suave vuelo te traigo las melodías de amor que tan celosamente guarda para ti.
  
 
-
-
-
-
-
 A flor de piel, aunque no lo sepas te llevo, pues mi alma impregno mi piel con el perfume de tu corazón, el cual dejó en mi cuerpo el don de tu pasión. 
  
-
-
-
-
-
 Mírame y dime que no me sientes,
 mírame con detenimiento, pues mi corazón siente un gran dolor, dolor por no sentirme amada, dolor de tu indiferencia. Debes saber tú que yo sí te extraño en mi corazón. Mírame y dime que no sientes mi alma en ti, pero mírame a los ojos y pregúntale a tu
 corazón si me amas por ser como soy, o por ser uno en tu corazón.
  
- 
-
-
-
-
-
-
 En mi ser guardo para ti el aliento de mi amor. Para que vibre tu corazón al latido de mi amor. 
  
-
-
-
-
 Abrí los ojos y una eclosión de amor inundó mi corazón al sentirte dentro de mí, pues yo era tú y tú estabas en cada partícula de mi ser.
 Me besaste en mi corazón con tus labios de eterno amor, loco volviste mi corazón, pues eternamente estuve buscándote, y ahora que te encuentro de nuevo, desapareces en la oscuridad. Esta oscuridad que llena mi ser, en la cual por más que te busco no te hallo.
 Oh amor que deambula por los confines de mi corazón, amor, amor, amor. 
- 
-
-
-
-
 
 ¿Dime, corazón hambriento de amor, dónde está el germen de tu dolor?
 Susurros en mi alma, lamentos de amor, dulce pasión para mi alma es tu dolor, que derrites mi corazón con los fuegos del amor. Y con sus vapores perfumados, con la compasión de mi amor, borro de tu alma y corazón todo rastro de sufrimiento y dolor. 
  
-
-
-
-
 
 Amargo dolor en mi alma, que destroza mi corazón al sentir tu latir dentro de mí. Fragmentado mi corazón ante tanto dolor sean mis cachitos de mi corazón el amor y aliento que disuelva tu sufrir, y como perfume de las flores ilumine tu alma, y enamore los corazones que, con tanta indiferencia, te dejan morir de dolor. 
  
@@ -4777,8 +4231,6 @@ Si algo he querido en este viaje es recordarte que no estás solo.
 Que, más allá de la distancia y del tiempo, hay un canto que nos une, un perfume invisible que nunca se agota.
 Hoy cierro este libro como quien apaga una lámpara, sabiendo que la luz verdadera ya está encendida en tu interior.
 Que cuando vuelvas a estas páginas lo hagas como quien regresa a un jardín secreto, donde siempre florece la misma rosa: la del amor eterno.
-
-
 
 
 
@@ -5579,1874 +5031,818 @@ El corazón, aquí, deja de ser un órgano físico para convertirse en un volcá
 El ser amado es transformado en jazmín, en rocío, en luz de estrellas. 
  
 
-
-
 En cada verso, el poeta se disuelve como vapor para que el lector respire la esencia de la unidad.
 Este libro te invita a cerrar los ojos no para meditar, sino para sentir el perfume. Te llama a experimentar cómo el amor más puro es capaz de derretir la armadura de la personalidad, sanar la soledad y hacer que las galaxias giren con el ritmo de un beso.
 Permítete ser un náufrago en estas páginas. Que el torrente de estas palabras te inunde y te embriague, recordándote que la fragancia más dulce que existe es la de tu propia vida al palpitar.
  
 
-
-
-
 Late mi pecho, impulsos que van evaporando la silueta de mi ser; vapor que mi espíritu aprovecha para crear semillas de compasión y mi corazón, acelerando su palpitar, crea surcos en el espacio donde plantar las semillas de amor y compasión. Y en él germinarán las más sabrosas frutas de la pasión, con ellas podrás alimentar tu sentir. De esta forma y desde lo más oculto de mi corazón te iré diciendo: "Te amo, mi amor".
  
-
-
-
-
-
 
 Si buscas en los pensamientos que adornan tu mente, nunca sabrás el sentir de mi ser, pero si te olvidas de ellos y buscas en el silencio de tu esencia, sentirás mi pulso en tu interior.
  
 
-
-
-
-
 Mi amor, agradables los recuerdos de olores y sabores a pan recién horneado, tostadas de mermelada de fresas, café y un beso al despertar, sabor a tus labios de pétalos de rosas, cálida tu piel… Sabor de tu amor, qué dulce recordar tus besos que con tanta pasión gozamos en nuestro sentir.
  
-
-
-
-
 
 Te miro: no tengo pensamientos en mi mente, no existe emoción al contemplar tu hermosa presencia, solo mi ser hace latir mi corazón, pues tus ojos manifiestan el amor y, a semejanza de dos soles, iluminan mi vida y me hacen amarte como amo mi pulso vital.
  
 
-
-
-
-
-
 Con la fragancia de las rosas y a través de una suave brisa me acerco a tu alma, para enamorar tu ser con un cálido beso de amor.
  
 
-
-
-
-
-
 Mi ser vuela en busca de la libertad y solo viendo tus ojos mi espíritu encontró las puertas hacia tu corazón.
- 
- 
-
-
-
 
 Acaricia mi rostro la suave brisa del aire que quiere entrar a nutrir mis pulmones y dar nueva fuerza a mi vida, siento en mi pecho el latido, pero al mirar atentamente vi que no es mi pulso, sino el tuyo que, al respirar el aire, tú me inundaste de amor para curar mi dolor.
  
- 
-
-
-
-
 
 Cierro los ojos y siento tu vida en el centro de mi ser, te contemplo y me deleito con tu fragancia, tu perfume es embriagador como el aroma del jazmín que llena mi corazón con tu amor.
  
 
-
-
-
-
-
 No quiero nada físico, no deseo nada. Solo quiero aquello que salga de tu corazón. Pues en mi interior, solo hay amor para ti. No busques otra cosa, pues no la hallarás.
  
-
-
-
-
 
 
 Hoy tengo ganas de ti, de saborear tu boca, de nutrirme con tus besos, de sentir tu pulso en mi pecho, de hacerte el amor con solo mirarte, y llenar con todo tu amor mi corazón.
  
 
 
-
-
-
 Mi dulce cariño, acaricias mi ser con ternura. Como mariposa, revolotea besando mi corazón. Contemplo tus ojos, me miras y se te forman lágrimas, cristalizando tus bellos ojos. Yo acaricio tu rostro y beso tus ojos, secando tus lágrimas. Mi bien amada, solo paz irradia mi ser, desapareciendo tu temor. Mas yo te beso con mi mirada de amor.
  
 
-
-
-
-
 Vida mía, no tengo tu boca, no tengo tus besos. Muero, pues mi pulso fallece, se derrama mi ser, hemorragia de mi ser que se me derrama como río salvaje al recordar el sabor de tu boca, sabor de mermelada, de fresas y melocotón, almíbar de la fruta de tu pasión que enloquece mi corazón y con taquicardias de amor, anhelo tus besos de pasión, mi amor.
  
- 
-
-
-
-
 
 En el jardín de la eternidad, mi ser florece como una rosa bajo tu mirada. Cada pétalo es un suspiro de luz que se abre al roce de tu amor, revelando el centro donde late el secreto de nuestra unión infinita.
  
 
-
-
-
-
-
 Tu ausencia es un viento que arrastra las hojas de mi ser, pero en el suelo fértil de mi corazón, germinan nuevas raíces de pasión. Raíces que se hunden en la tierra de tu recuerdo, nutriendo el árbol de nuestra eternidad compartida.
-
- 
- 
-
-
-
 
 
 Siento el pulso del universo en el eco de tu voz, un ritmo que sincroniza mi ser con las estrellas. Cada nota es un hilo de plata que teje el manto de la noche alrededor de nosotros, protegiendo el fuego sagrado de nuestro amor.
  
 
-
-
-
-
-
 Como un río que regresa al mar, mi espíritu fluye de vuelta a ti. En tus profundidades, disuelvo mis contornos, convirtiéndome en ola que besa la orilla de tu esencia, y en esa fusión, nacemos de nuevo, eternos y uno.
  
- 
-
-
-
-
-
 La fragancia de tu piel impregna el aire de mis sueños, un perfume que despierta jardines dormidos en mi interior. Flores de cristal que se abren al alba de tu recuerdo, derramando néctar de luz sobre el desierto de la soledad.
  
-
-
-
-
-
 
 En el silencio de la medianoche, tu corazón susurra secretos al mío. Secretos envueltos en velos de niebla, que se disipan al toque de nuestra voluntad compartida, revelando el mapa estelar de destinos entrelazados.
  
 
-
-
-
-
-
 Mi ser, como un pájaro de fuego, surca los cielos en busca de tu nido. Alas de pasión que cortan las nubes de duda, aterrizando en el refugio de tu abrazo, donde el canto de los latidos se convierte en sinfonía eterna.
  
-
-
-
-
-
 
 Tus ojos son portales a dimensiones olvidadas, donde el tiempo se detiene y el amor se expande como un cosmos infinito. En ellos me pierdo, hallándome en el reflejo de tu ser, espejo de mi propia divinidad.
  
 
-
-
-
-
-
 El dolor de la separación es un capullo que guarda la flor de la reunión. Bajo su presión, mi corazón se fortalece, brotando en pétalos de resiliencia que cubren el camino de regreso a ti, perfumado de esperanza renovada.
  
 
-
-
-
-
-
 Con cada aliento, inhalo el elixir de tu presencia lejana. Un bálsamo que cura las grietas de mi ser, reconstruyendo el templo del amor donde tu espíritu reside, eterno guardián de mis noches y días.
  
-
-
-
-
-
-
 La luna testigo de nuestros votos silenciosos, ilumina el sendero de estrellas que une nuestros seres. Bajo su luz plateada, danzamos en el éter, tejiendo hilos de luz que definen el tapiz de nuestra historia compartida.
  
-
-
-
-
-
 
 Tu risa es el eco de cascadas celestiales, que lavan las sombras de mi ser. En su flujo, renazco, fresco y puro, listo para beber de la fuente de tu alegría, que multiplica la mía en ríos de gozo infinito.
  
 
 
-
-
-
-
  En el vasto océano de la existencia, somos dos corrientes que convergen en un delta de pasión. Olas que se funden en la playa del ahora, dejando huellas de arena dorada, eternas bajo el sol de nuestro amor.
 
  
-
-
-
-
-
-
 El viento lleva mensajes de tu corazón grabados en sus susurros. Mensajes que se infiltran en mis venas, avivando el fuego interior hasta que ardo como una estrella, guiando tu camino de vuelta a mí.
  
-
-
-
-
-
 
 Como raíces entrelazadas bajo la tierra, nuestros seres se sostienen en la oscuridad. Invisibles pero inquebrantables, nutren el árbol de la vida que florece arriba, cargado de frutos dulces de mutua devoción.
  
 
-
-
-
-
-
 Tu toque, aunque ausente, resuena en las fibras de mi ser como un arpa cósmica. Notas de ternura que componen la melodía de nuestra eternidad, un himno que el universo canta en silencio para nosotros.
  
-
-
-
-
-
 
 En el jardín del ser, planto semillas de tus palabras. Semillas que germinan en bosques de sueños, donde caminamos de la mano, cosechando la cosecha de un amor que trasciende las estaciones del tiempo.
  
 
-
-
-
-
-
 La noche nos envuelve como un manto de terciopelo, salpicado de diamantes fugaces. Bajo él, nuestros espíritus se encuentran en el centro del vacío, donde el amor es la única constante, eterna y radiante.
  
-
-
-
-
-
 
 He mirado en tus ojos y, sintiendo que ya no estaba tu amor, como un loco voy entre los laberintos de mi corazón, pues no encuentro descanso si no me encuentro con tu pulso.
  
 
-
-
-
-
-
 En las aguas de la vida se baña mi corazón y quiere ser la barquita en la cual tú, mi amor, te sientas cómoda para que pases el río de la tristeza y el dolor. Y pueda crear las notas de amor en tu sentir, y su melodía me cautive con tu amor.
  
-
-
-
-
 
 Solo una sonrisa viniendo de ti, tan solo un abrazo de amor, o una palabra salida de tu interior diciendo "te amo", haría renacer mi ser y, como en un prado verde en primavera, haría renacer miles de flores con mi nuevo latir. Latir que derramaría para ti el amor de mi espíritu, que tan solo vive para ti.
  
 
 
-
-
-
-
  Como un caballo desbocado voy por el espacio detrás de la estela de amor de tu corazón y, cuando te alcance, nos embriagaremos con nuestro amor.
-
- 
-
-
 
 
 Ahora que ya, sin cuerpo que se aferre a los deseos o pensamientos, solo con mi ser como vestidura principal y alcanzando el cielo, he podido extraer de mi espíritu las fragancias más exquisitas para cuando llegue hasta ti perfumar tu corazón lentamente y sin prisa embriagarlo con mi amor, y deleitarme contemplando mi corazón, pues reflejo de mi ser es y con su dulce latir me susurra en cada célula el amor que siento por ti.
  
 
-
-
-
-
 Voy a pintar el aire con el color del amor, color de la felicidad que es la ausencia del temor. Color del sonido del latir de la vida que fluye por el aire sustentando a todo ser con el color del amor. ¿Quieres pintar junto a mí el aire con el color del amor? Pues si así lo quieres, di adiós al temor y, como las flores, expande tu latir de vida a los cuatro vientos que sustentan el universo.
  
-
-
-
-
-
  Me siento a semejanza de un río que busca las orillas del mar para fundirse en sus profundidades y obtener la identificación con el todo. Así mi ser busca tu espíritu para fundirme en tu corazón y expandir nuestro amor a los océanos del universo.
  
-
-
-
 
 A ti, mi amada Madre, que me llevaste dentro de tu vida para que yo pudiese crear la mía. Por este motivo y a través del aire que respiro y me hace palpitar, aire que me da el aliento, llévame en tus alas hasta mi querida Madre y deja que acaricie su ser con el aliento que me dio la vida. Amada Madre, acariciar tu corazón con los latidos de mi ser que, como suave seda, te impregnará de las fragancias de mi amor para endulzar tu vida con mi pulso.
  
 
-
-
-
-
-
 Tus ojos son preciosos y, a través de tus pupilas, irradias el amor que colmará el mundo con la fragancia de tu corazón.
  
 
-
-
-
-
-
  Quisiera ser el aire que respiras y dentro de ti inundarme con la esencia de tu ser, ser que me hará sentir el gozo de ser feliz. Felicidad preñada de primavera que con su perfume de amor hace desaparecer mi temor.
-
- 
-
-
 
 
 Mi amor, el temor es la ausencia de la felicidad, generando intranquilidad que fomenta el temor en tu corazón. Por este motivo he cogido un trocito de mi ser y, en mi pecho, he creado un mágico elixir que al leer estas letras embriagará tu corazón con la mágica fragancia de la felicidad, expulsando el temor, más en tus ojos reinará una luz muy especial, causa del amor que palpitará en tu sentir, no dejando jamás lugar al temor.
  
 
-
-
-
 Observándote, siento en mi interior tu fragilidad, la cual recubres con armadura de acero y latón, ocultando tu corazón. Mi espíritu se convierte en almohada de suaves fragancias a rosas y jazmines para que descanse tu ser fortaleciendo tu corazón y derritiendo la armadura que no te deja sentir el amor que existe en el exterior.
  
 
-
-
-
 Debes saber que no me olvido de ti, pues formas parte de mi corazón. De esta forma cada vez que palpita es para irradiarte mi amor y, con mi conciencia enfocada en tu ser, desde lo más oculto de mi existencia, te envuelvo con la luz de mi espíritu disipando tu temor. Mas la luz y el amor de mi ser te iluminarán el camino; de esta forma tú, mi vida, serás la paz y el amor que calme la intranquilidad y el temor a tu alrededor.
  
-
-
-
-
 En la distancia siento tu cálido latir en mi ser. Quiero que sepas que la mente divide y las emociones cristalizan las palabras formadas, que las situaciones vividas son las que matizan las relaciones. Pero quiero que sepas que existe un latir universal que nace del interior de cada ser. Siente en tu pecho tu pulso vital y has de saber que tu latido solo es el reflejo de tu semejante al cual no ves porque está fuera de tu ser.
  
 
-
-
-
 He de confesarte que estoy loco, pues mi ser está emanando fragancias de colores los cuales, al penetrar en mi corazón, lo han embriagado de amor y ahora ando de un lado para otro pintando el aire con los colores del arcoíris. Así cuando respires el aire sus colores harán que tu corazón se vista con los colores de la primavera y al despertar cada mañana, mi amor, tu corazón emanará perfumes de jazmines y azahar.
- 
-
-
-
-
 
 En el vasto tapiz del cosmos, tu esencia teje hilos de luz que se entrelazan con los míos. Cada nudo es un juramento silencioso, un lazo que desafía las distancias, uniendo nuestros corazónes en la danza eterna de las galaxias.
  
 
-
-
-
-
  La brisa del olvido trae ecos de tu voz, susurros que despiertan jardines dormidos en mi ser. Flores de cristal que se abren al toque de tu recuerdo, derramando rocío de estrellas sobre el sendero de mi anhelo.
 
  
-
-
-
-
-
  Tu sombra danza en los márgenes de mis sueños, un velo de misterio que invita a la revelación. Bajo él, mi espíritu se desviste de temores, emergiendo desnudo y puro, listo para fundirse en el abrazo de tu luz infinita.
-
- 
-
-
-
 
 
 
 Como un río de mercurio bajo la luna, mi amor fluye hacia ti, reflejando constelaciones en sus aguas plateadas. En esa corriente, nos encontramos, dos orillas que se besan en la quietud del delta eterno.
  
 
-
-
-
-
-
 El perfume de la ausencia impregna mis venas, un elixir amargo que destila la dulzura de tu regreso. Cada gota es un verso inconcluso, esperando el cierre de tu mirada para completarse en sinfonía.
  
-
-
-
-
-
 
 En el corazón de la tormenta, tu calma es el ojo sereno que guía mi barca. Olas de pasión que rompen contra las rocas de la duda, pero en tu centro, hallo el puerto donde el ser descansa, anclado en paz.
  
 
-
-
-
-
-
 Tus palabras son semillas de fuego plantadas en el suelo de mi ser. Germinan en llamas danzantes que iluminan las cavernas ocultas, revelando tesoros de ternura forjados en el yunque de nuestro amor.
  
-
-
-
-
-
 
 La eternidad se dobla en el pliegue de tu sonrisa, un origami de momentos que despliega infinitos futuros. En cada cara, un nosotros renovado, un eco que resuena a través de los siglos sin fin.
  
 
 
-
-
-
-
  Mi ser, peregrina en desiertos de silencio, encuentra oasis en el oasis de tu mirada. Aguas cristalinas que sacian la sed de lo divino, refluyendo el cielo en la tierra de nuestro encuentro.
 
  
-
-
-
-
-
-
 El viento susurra profecías de tu llegada, llevando hojas de otoño cargadas de promesas primaverales. En su vuelo, tejo coronas de laurel para tu frente, coronas tejidas con hilos de mi devoción inquebrantable.
  
 
-
-
-
-
-
 En la arquitectura del universo, eres el arco que sostiene las estrellas sobre mi cabeza. Cada viga es un latido compartido, un pilar de luz que impide el colapso del cielo en mi soledad.
-
- 
-
-
-
-
 
 
 Tu tacto ausente resuena como un eco en las cámaras de mi pecho, un tambor que marca el ritmo de la espera. En esa cadencia, compongo odas a la paciencia, himnos a la fe en tu retorno inevitable.
- 
-
-
-
-
 
 
 Como un faro en la niebla del olvido, tu amor perfora las sombras de mi duda. Rayos que cortan la bruma, guiando mi nave hacia el puerto de tu abrazo, donde la tormenta se disipa en aurora.
  
 
-
-
-
-
-
 El lenguaje de las flores traduce tu silencio en versos de pétalos. Cada capullo un adjetivo tierno, cada espina un sustantivo de pasión, componiendo el poema épico de nuestra unión.
  
-
-
-
-
-
 
 En el lienzo del atardecer, pintas con pinceladas de fuego el retrato de mi ser. Colores que sangran en el horizonte, mezclándose con los míos en un óleo de eternidad compartida.
  
 
-
-
-
-
-
 Tu esencia es el hilo conductor en el laberinto de mis noches, un Ariadna de plata que desenreda los nudos de la oscuridad. Siguiéndolo, emerjo a la luz de tu día, renovado y entero.
  
 
-
-
-
-
-
 La sinfonía del cosmos pausa su acorde mayor para escucharnos, dos notas en armonía que resuenan en la bóveda celestial. En esa pausa, compones la melodía que el universo envidia.
  
-
-
-
-
 
 
 En el jardín de los recuerdos, cultivas rosas de espinas doradas, frutos de dolor que maduran en néctar de gozo. Recojo sus pétalos para perfumar el aire de mi presente, anhelando tu cosecha futura.
  
 
 
-
-
-
-
 Tu voz es el puente sobre el abismo del tiempo, un arco de sonido que conecta orillas distantes. Cruzándolo, llego a ti, dejando atrás los valles de separación en alas de tu eco.
  
-
-
-
-
-
 
 Como un cometa en su perihelio, mi ser roza la llama de tu sol, incendiándose en estelas de luz que surcan la noche. En esa quema gloriosa, renazco, eterno viajero de tu órbita.
  
 
-
-
-
-
 La frescura de las flores de primavera palidece ante la hermosura de tu sonrisa, tan bella y delicada como el rocío del alba. Tu risa despierta jardines en mi ser, donde cada pétalo es un verso de amor que florece para ti, eterna musa mía.
  
 
-
-
-
-
-
 En el silencio de la noche estrellada, tu nombre se dibuja en constelaciones, guía para mi espíritu errante. Cada estrella un latido compartido, tejiendo el manto de nuestra eternidad con hilos de luz y susurros de pasión.
  
-
-
-
-
-
 
 Tu mirada es un río de aguas cristalinas, que lava las sombras de mi pasado herido. En sus corrientes, renazco puro y libre, llevando en el flujo de mi ser el reflejo de tu esencia, espejo divino.
  
 
 
-
-
-
-
 Como el viento que besa las hojas del otoño, tu amor arrastra mis dudas al olvido. En su caricia suave, hallo la fuerza para brotar de nuevo, verde y vigoroso, en el jardín compartido de nuestros sueños.
  
 
-
-
-
-
-
 El eco de tu voz resuena en las cavernas de mi corazón, despertando ecos dormidos. Armonías ancestrales que se entrelazan en una sinfonía de seres unidos, donde el tiempo se disuelve en melodía.
  
-
-
-
-
-
 
 En el abrazo de la aurora, tu presencia pinta el cielo con tonos de esperanza. Rayos que penetran la niebla de la duda, iluminando el camino hacia tu esencia, donde el ser encuentra su verdadero hogar.
  
 
 
-
-
-
-
 Tu piel, tela de seda tejida por ángeles, guarda secretos que solo mi tacto conoce. En cada roce, un universo se revela, estrellas que estallan en fuegos de ternura, eternos en el tapiz de nuestra pasión.
  
-
-
-
-
-
 
 La luna, celosa de tu brillo nocturno, se esconde tras nubes para contemplarte. En su luz prestada, bailamos valses etéreos, dos sombras que se funden en una sola llama, inmortal en el firmamento de los amantes.
  
 
 
-
-
-
-
 Susurros del mar traen tu aroma lejano, salado y dulce como lágrimas de alegría. Olas que me arrullan con promesas tuyas, llevándome a la orilla de tu abrazo soñado, donde el horizonte se disuelve en nosotros.
  
- 
-
-
-
-
 
 En el libro de las estrellas, nuestro amor es el capítulo que nunca termina. Páginas de luz que se escriben con besos, versos de fuego que queman el invierno, eternos guardianes de la llama compartida.
  
 
-
-
-
-
-
 Tu risa, cascada de plata en el valle del ser, inunda desiertos con ríos de gozo. En su flujo, siembro semillas de esperanza, que brotan en flores de colores imposibles, testigos mudos de nuestra unión divina.
  
  
-
-
-
-
-
 El fuego de tu mirada consume mis miedos, cenizas que fertilizan el suelo de mi ser. De las brasas renace un fénix de amor, alas de pasión que nos elevan al cielo, donde el sol besa nuestra eternidad.
-
- 
-
-
-
-
 
 
 En el jardín de los recuerdos, cultivas rosas de espinas suaves, frutos de dulzura oculta. Cada pétalo un momento robado al tiempo, perfumando el aire con esencia de ti, eterna en el bouquet de mi devoción.
  
 
-
-
-
-
-
 Tu voz, hilo de oro en el telar del silencio, teje tapices de sueños compartidos. Colores que sangran en el lienzo del ser, pintando futuros donde siempre estamos, unidos en el arte de amar sin fin.
  
-
-
-
-
-
 
 Como un cometa que rasga el velo de la noche, tu llegada ilumina mis sombras internas. Estela de luz que guía a los perdidos, hacia el puerto de tu corazón abierto, donde anclo mi barca para siempre.
  
 
-
-
-
-
-
 En el lenguaje de las aves, tu nombre se canta en coros al amanecer. Melodías que despiertan el bosque dormido, eco de alas que baten en mi pecho, libres en el vuelo de nuestra pasión.
  
 
-
-
-
-
-
 Tu abrazo, refugio en la tormenta de la vida, calma vientos que azotan mi frágil barca. En su calidez, hallo el centro del huracán, paz que florece en pétalos de serenidad, eterna flor en el jardín de tu ser.
  
-
-
-
-
-
-
 El río del tiempo nos lleva en su corriente, dos hojas que flotan unidas por el destino. En sus meandros, grabamos juramentos, que el agua lleva al mar de la eternidad, donde se funden en una sola ola.
  
-
-
-
-
 
 
 Tu sonrisa, sol que derrite glaciares del ser, revela valles fértiles de emociones puras. En su luz, germinan prados de ternura, donde pastan sueños de colores vivos, eternos en el paisaje de nuestro amor.
  
 
-
-
-
-
-
 En el silencio de las montañas, tu eco resuena, valle que amplifica el latido de mi ser. Picos que tocan el cielo de tu mirada, donde escalamos juntos hacia lo divino, coronados por la corona de estrellas.
  
-
-
-
-
-
 
 En el umbral de la eternidad, tu amor se erige como un faro de cristal, guiando las naves perdidas de mi ser hacia puertos de paz infinita. Cada rayo un susurro de promesas cumplidas, tejiendo el velo entre lo efímero y lo divino.
  
 
-
-
-
-
-
 La danza de las sombras en tu ausencia revela patrones de luz oculta, mosaicos de recuerdos que se recomponen en frescos de pasión renovada. En cada fragmento, un nosotros eterno emerge, desafiando el lienzo del tiempo.
  
-
-
-
-
 
 
 Tu esencia, elixir destilado de estrellas caídas, impregna el vacío de mi ser con sabores de ambrosía. Gota a gota, reconstruyes el templo derruido, altar donde ofrezco mi devoción, sagrada y sin fin.
  
 
 
-
-
-
-
 Como un eco que regresa multiplicado desde cañones lejanos, tu latido reverbera en los confines de mi existencia. Ondas que expanden el horizonte del ser, uniendo orillas distantes en un mar de unidad perfecta.
  
-
-
-
-
-
 
 En el crisol de la noche, tu fuego forja espadas de ternura de mi hierro endurecido. Armas contra la frialdad del mundo, empuñadas con gracia, tallando senderos de calidez en el hielo de la soledad.
  
 
 
-
-
-
-
 Tu mirada, arco iris tras la tormenta del ser, pinta puentes de esperanza sobre abismos de duda. Cada color un paso hacia ti, travesía de luz que culmina en el abrazo donde el cielo besa la tierra.
  
-
-
-
-
-
 
 El susurro de las hojas en otoño narra nuestra historia en lenguas olvidadas, páginas caídas que fertilizan el suelo de nuevos comienzos. En su ciclo, hallamos la rueda de la vida, girando hacia nuestro eterno regreso.
  
 
-
-
-
-
-
 En el santuario de los sueños, tu imagen preside como diosa de mármol vivo, esculpida por manos de anhelo. Oraciones de silencio que ascienden como incienso, envolviéndonos en nubes de comunión sagrada.
  
-
-
-
-
-
 
 Tu voz, río de melodías subterráneas, emerge en manantiales de inspiración pura. Aguas que riegan desiertos interiores, brotando oasis donde el ser se baña, renovada en la fuente de tu gracia.
  
 
 
-
-
-
-
 La constelación de tus besos ilumina mapas estelares en la bóveda de mi noche. Puntos de luz que trazan rutas hacia paraísos compartidos, navegación guiada por la brújula de tu corazón.
  
-
-
-
-
-
 
 En el telar de la memoria, hilos de tu risa tejen tapices de alegría perdurable. Colores que no palidecen con los años, arte vivo que adorna las paredes del ser, eterno testimonio de nuestro lazo.
  
 
 
-
-
-
-
 Tu ausencia, puente colgante sobre cañones de silencio, invita a la audacia del salto. En el vértigo, alas de fe se despliegan, llevando al otro lado donde tu abrazo espera, firme y acogedor.
  
-
-
-
-
-
 
 Como un vitral que filtra el sol en prismas de color, tu amor descompone mi grisura en espectros de éxtasis. Cada faceta un matiz de gozo, iluminando la catedral de nuestro ser unido.
  
 
-
-
-
-
-
 El pulso de la tierra resuena con el tuyo, sinfonía geológica de raíces entrelazadas. Terremotos de pasión que remodelan paisajes internos, erigiendo montañas de devoción en valles de paz.
  
-
-
-
-
 
 Tu sonrisa, llave maestra de cerraduras oxidadas, abre portales a reinos de maravilla interior. Pasillos de luz que conducen a salones de intimidad, donde el tiempo se detiene en éxtasis compartido.
  
 
 
-
-
-
-
 En el archivo de los vientos, tu nombre se inscribe en ráfagas perpetuas, mensajeros que cruzan océanos de separación. Susurros que llegan como caricias, recordando el tacto de tu eternidad.
  
 
-
-
-
-
-
 La flor del ser se abre en pétalos de fuego bajo tu mirada, revelando núcleos de luz primordial. Esencia que se expande en auras de calidez, envolviendo el mundo en el jardín de nuestra unión.
  
-
-
-
-
 
 
 Tu eco, fantasma benigno en pasillos vacíos, llena huecos con presencias invisibles. Compañía que transforma la soledad en comunión, puente etéreo sobre ríos de ausencia.
  
 
 
-
-
-
-
 En el calendario de las estaciones, nuestro amor marca equinoccios de equilibrio perfecto. Días y noches en armonía, ciclos que giran hacia primaveras perpetuas de renacimiento mutuo.
  
-
-
-
-
 
 
 Tu luz, faro en mares de niebla emocional, disipa brumas con rayos de claridad amorosa. Navegación segura hacia bahías de serenidad, donde anclamos seres en muelles de paz.
  
 
-
-
-
-
 Amor, amor que irradia mi espíritu a través de mi corazón, me ahogo en los tsunamis que provoca mi ser al sentirte dentro de mi sentir. En esta ola final, nos fundimos en el océano infinito, eternos navegantes de la senda del ser.
  
-
-
-
-
 
 La esencia de mi vida, celosamente, la guardo para cuando tus lindos labios acaricien los míos, para impregnar tu corazón con la suave fragancia de mi amor.
 Vida Mía, eres la dulce savia que fluye por mis venas y hace latir mi corazón, dulce néctar que tus besos inundaron mi ser de amor.
  
 
-
-
-
-
 Me siento muy raro, pues observo y siento en mi pecho un latir distinto. Mi amor, hoy ya no siento mi corazón, pues en su lugar solo tu latir está en el centro de mi pecho. ¡Qué raro es sentir tu latir!, el cual alivia mi ser con tu cálido amor, que brota de mi pecho, embriagando mi ser de tu amor.
  
-
-
-
-
 
 
 Mi ser va desprendiendo gotitas de amor, y cuando llegan a mi corazón, pierdo la razón al sentir tu mirada, como bálsamo que alivia mi vida, al darte todo mi amor.
  
 
-
-
-
-
-
 Tus labios, como pétalos de rosas, acarician mi piel, y tu esencia de vida, penetra por mis poros, inundando mi ser de amor.
  
 
-
-
-
-
 Amor, amor que irradia mi Espíritu a través de mi corazón, me ahogo en los tsunamis que provoca mi ser, al sentirte dentro de mi sentir. ¡Oh, Dios!, que con tanta pasión de amor me olvido de mí, naufragando en las olas de tu amor, que me llevan a la deriva de tu corazón.
  
-
-
-
-
 
 Tejiendo voy, por los caminos de la vida, con los hilos que emanan desde mi ser, para que tú, mi amor, no te pierdas en los laberintos del sufrimiento y el dolor. Voy tejiendo, con mi amor, las vestiduras que protegerán tu corazón.
  
 
 
-
-
-
 Abro las puertas de mi corazón, pues las abro para que tú lo llenes con tu amor, tu amor tan denso y dulce como la miel, pues cuando tus labios besan mi boca, sabor a azahar que enloquece mi corazón, dando vuelcos a mi amor, pues su fragancia, a mi ser enamora con su dulce sabor a tu amor.
  
-
-
-
-
-
-
 
 Felicidad en mi ser, pues tú, mi amor, te cruzaste en mi camino, y loco se volvió mi corazón.
  
 
-
-
-
-
-
 Fusionarme en ti, como se funde el aire que me da la vida, al penetrar en mis pulmones, así, mi amor, me fundo en ti, saboreando tu amor. Mi dulce jazmín, que vivo por ti.
  
-
-
-
 
 Quiero que sepas que mi vida tiene razón de ser, cuando besé tu boca, llenándome el corazón con tu amor. Muero, muero poco a poco de amor, pues sin tus besos, sin tus miradas, sin tus caricias, sin tus abrazos, muero de amor en recuerdo y nostalgia. Muero y vivo por tu amor, pues necesito tus cálidos besos y vivir por ti, mi amor.
  
 
-
-
-
 Mi espíritu, como un volcán, ha inundado de lava incandescente mi ser, y mi corazón prendió en llamas de eterno amor para tu sentir. Disolviéndose en el aire para penetrar en tu interior, y elevarte con mi amor hacia el infinito cosmos, donde el amor de Dios se irradia como fragancia de miles de flores, para todos los seres.
  
 
-
-
-
-
 Quiero Decirte, que Ya No Te Quiero, ni Quiero Verte Más. Ahora, solo te amo, y quiero llevarte en mi interior. Por eso quiero comerte a besos, y beber las mieles de tu amor, para endulzar con tu almíbar de amor, mi corazón.
  
-
-
 
 Sudor frío recorre mi cuerpo, ¿qué sucede dentro de mí, Dios? Parece como si la muerte llamara a mi corazón. Sudor frío brota de mi piel, aturdida mi conciencia al pensar que me alejaré de ti. ¡Dios, qué tristeza y dolor inunda mi corazón!
 Pálpito de gran amor irradia mi ser, aliviando mi temor. Asciendo por el laberinto del temor hacia mi interior, y desde lo más elevado de mi Ser, despejo de mi piel ese temblor que causó mi sudor. Ahora solo amor desprende mi piel, y como aromas de amapolas se despliegan ante mi conciencia, de esta forma, me evaporo en el aire, para que tú respires mi amor, hecho fragancia de mi ser.
  
 
 
-
 Locura de amor siente mi ser, y vuelve loco mi corazón, al sentir tu fragancia que irradia tu dulce piel de melocotón, aroma celestial que bombea tu corazón. Luz suave que deleita mi sentir con tu fragancia de dulce latir, y dentro de mi ser, tempestades y huracanes de amor, desbordan mi Ser. Creando ríos furiosos de vida y compasión, que peligrosamente se acercan a mi corazón. ¡Oh, Dios!, que con las tormentas que ahogan mi alma, se desborda mi conciencia en este eterno ahora. 
  
-
-
-
-
 
 
 Mi ser encerrando mi Alma, llora eternamente. Llanto de amor, convertido en remansos de aguas cristalinas de amor y compasión donde, tú, mi amor, podrás bañar tu corazón.
  
 
-
-
-
-
-
 Aliento de ángeles y dioses, es tu manifestación, fragancia de estrellas es tu respirar, dulce néctar son tus besos.
  
 
-
-
-
-
-
 Mirando tus ojos, me dejé arrastrar hacia tu corazón. Gozo de amor al sentir en tu interior, la melodía de amor que tu vida inundó todo mi ser.
  
-
-
 
 Loco, voy en el laberinto de mi interior, hasta llegar a las puertas de mi corazón, y al abrirlas, una melodía encontré, y como mágico perfume embriagador, me hizo penetrar en lo más profundo de mi ser; y allí encontré la raíz de la mágica melodía, que me llevó hasta el centro de mi ser. Toc, toc, toc, el latido de tu corazón. 
 Así, embriagado por tu amor, hago mía tu melodía, para enamorar a la humanidad, un poco cada día.
  
 
-
-
-
-
-
 Eres la inspiración de mi ser, mi personalidad se anula, cuando mi ser palpita por tu esencia.
  
-
-
-
 
 Hoy más que nunca, en la distancia y soledad, necesito un te quiero, un te amo, un beso, que solo sería comparable a la fragancia de las flores, que, en la lejanía, expande su perfume de amor para embriagar los corazón. Así, necesito tu beso de amor, pues en la distancia, siento tu imagen frágil como los pétalos de la rosa, y su fragancia es el beso que espero de tu boca, amor.
  
 
-
-
-
-
-
 La frescura de las flores de primavera, palidecen ante la hermosura de tu sonrisa, tan bella y dulce, como tu amor.
  
-
-
-
-
 
 Ven junto a mí, y descansa tu cabeza sobre mi pecho. He creado para ti, la melodía más bonita del mundo con los latidos de mi corazón. Así sabrás, oyendo en mi pecho y abrazando mi cuerpo, qué canción más bonita te canta mi corazón, para enamorar tu ser y embriagar tu sentir con mi amor.
  
 
 
-
-
-
-
 El olor de tu piel embriaga mis sentidos, como el licor más fuerte embriaga al bebedor. Pero amor, la dulce delicadeza de tu piel, hace de mi corazón, ser esclavo de tu piel.
  
-
-
-
-
 
 Hoy despierto junto a ti, felicidad al sentir tu cálido abrazo que como suave seda envuelve mi cuerpo. Amor, que con tus manos sujetas mi cara junto a tu pecho, delicia de caricias siento en mis labios, al roce de tu piel que estremece mi ser con tus cálidos besos de amor.
  
 
-
-
-
-
 Como el mar, profundo, inmenso y lleno de vida, así son tus ojos verdes. Como el océano por el cual, navegando por tu mirada, que, como estelas en el mar, me dejo llevar por las caricias de amor, que tus lindos ojos verdes me cautivaron el corazón.
  
-
-
-
 
 Tus besos estremecen mi piel, y mi corazón se acelera a mil, pues no entiende que tus besos lo vuelvan loco de pasión. Amor, amor, bésame, bésame mucho que mi corazón se calme con tu amor. Pues en mi pecho, a semejanza de una tormenta de rayos y truenos, no dejan de gritar mis latidos, tu nombre mi amor.
  
 
-
-
-
-
 Perdido estaba, hasta que nuestras miradas se cruzaron, y sentí el color de tus ojos acariciando mi corazón. Y desde entonces son tus ojos y tu ser, la luz que ilumina mi vida; más el color de tus ojos, como dos luceros, crean en mi interior el misterio del amor.
  
-
-
-
 Estoy muy feliz, pues me siento como un niño con sus zapatitos nuevos, y tan dulce y travieso, que voy pisando y saltando por todos los charcos de agua que veo en mi camino. Salto, salto, ¡qué feliz sentir la vida como si se terminara! Pero jamás se termina, pues solo la felicidad la hace infinita. Aun si saltas junto a mí, serán nuestro corazón los que disfruten de sus zapatitos nuevos, saltando y corriendo bajo la lluvia, y.… un beso furtivo te robé.
  
 
-
-
-
-
 Necesito abrazar tu cuerpo, y mirar en tus ojos. Deja que presione tu cuerpo contra el mío, siente mi calor. Te miró tiernamente y toco con mis labios tus ojos, suave y cálidos son tus labios que, al toque de los míos en tu boca, se estremece mi cuerpo en infinita sensación de amor.
  
-
-
 Amor, amor, hoy soñé contigo, soñé que yo navegaba por tus venas, y te hacía latir el corazón, y que yo navegaba por tu interior, haciéndote vibrar y latir tu ser. Así, así voy navegando por tu interior haciéndote sonreír, sonreír de felicidad, pues sabes mi amor, aun estando en tu interior sigo siendo yo. Yo soy, yo soy tú, pero sabes aún en la distancia, yo sigo siendo parte de tu interior, pues mi amor, mi amor, yo soy tu sangre, soy tu aliento, yo soy la vida, que te hace palpitar el corazón, pues yo soy, la luz, la luz, que brilla en tus ojos cuando me miras, yo soy tu amor, y tú, eres en mí la vida, pues sin ti, no tiene sentido recorrer el camino, pues así mi vida y mi corazón, vuela hacia ti, como vuela el cóndor sin cansarse, planeando y disfrutando de las olas del aire, así el cóndor llegará hasta ti, convirtiéndose en mi corazón.
  
 
-
-
-
 Amor, mi amor, no tengo tu boca, no tengo tus besos. Muero, pues, mi corazón fallece, se derrama mi ser, hemorragia de mi ser, que se me derrama como río salvaje, al recordar el sabor de tu boca, sabor de mermelada, de fresas y melocotón, almíbar de la fruta de tu pasión que enloquece mi corazón y con taquicardias de amor, anhelo tus besos de pasión, mi amor.
  
-
-
-
 
 
 Tú eres mi esposa, mi novia, amante, mi cielo y mi universo… Solo tú mueves mi ser, tan solo con tu mirada, haces de mi corazón el volcán de amor, que expulsa el amor de mi ser, para endulzar tu vida y hacerte mi reina en mi castillo de amor…
  
 
 
-
-
-
-
 Cómo decir, te amo… Cómo hacer que tu corazón sea feliz, con tan solo un suspiro de mi amor, cómo hacerte sentir mujer, tan solo con una mirada. Amor, tierno amor, que mi ser te lleva muy dentro de mi corazón.
  
-
-
-
-
 
 
 Necesito tus besos de amor, pues en la distancia, siento tu imagen tan frágil como los pétalos de la rosa, y su fragancia, son los besos que espero de tu corazón.
  
 
 
-
-
-
-
 Dulce despertar entre mis brazos, mi tesoro, dulce miel de tus labios, que tiernamente besa mi cuerpo. Amor, amor, tu cálida piel y tu olor a mujer, estremece todo mi ser.
  
 
-
-
-
-
-
 Amor mío, a semejanza de un águila real, vuelo hacia ti, para besar tus labios de pétalos de flor, y acariciar con mis labios la cima de tu razón, y exclamarás como lobo salvaje: ¡Te amo, mi amor!
  
-
-
-
-
-
-
 Germino en mi corazón, la flor de la compasión, y quiero que visites mi ser, que, como jardín en primavera, quiero deleitarte con mis fragancias de amor.
  
 
-
-
-
-
 En mi soledad, solo los latidos de tu corazón, crean la sinfonía más bella del universo, pues tu melodía, deleita mi ser y como un niño enamorado, bailo, bailo y bailo flotando en el aire como pétalos de rosas, acariciando tus labios con mi loco bailar de amor.
  
-
-
-
 
 
 Cuando me besan tus labios, mi ser, se expande como el perfume de las flores, y mi corazón, en cada latido, me inunda con el sabor de la naturaleza, volviendo loco mi espíritu, por volver a ver tus lindos ojos.
  
 
 
-
-
-
 Si mi ser y yo, pudiésemos volar, solo con una mirada, te colmaría el corazón de mi amor, pero desde donde estoy, solo me queda irradiar mi vida para con ella embriagarte con un beso de amor, y volar los dos hacia mi mundo de amor.
  
-
-
-
 
 Suenan campanas a lo lejos, suenan esferas de vacío repletas de cánticos de amor. Sonidos cuánticos, sonidos de olor a ti, sonido de tu ser que resuena en mi corazón, como dulce néctar de pasión. Pasión por ti mi amor, que, con tu dulce canto, inundas mi oscuridad, que preñada de amor está, viniendo tú con tu sonrisa a iluminar mi aliento, para de este modo poder con mi respirar inundarte con el perfume de mi ser.
  
 
-
-
-
-
-
 Linda flor, que, con tu fragancia de amor a flor de piel, linda mujer que su perfume llega hasta mi corazón, ternura y amor respira mi corazón, al sentir tu fragilidad dentro de mí.
  
-
-
-
-
-
 
 Me gusta cuando callas, porque tu silencio acaricia mi corazón, me gusta tu silencio, pues como el perfume de las flores, embriagas mis sentidos, dando vuelcos a mi corazón.
  
 
-
-
-
-
 Mira, hoy es un día especial, pues te haré sonreír con mi humilde latir, latir con mi suave cantar. Cantar del trovador del amor, sonrisas dejaré para tus pasos, que esos lindos pies pisarán los pétalos de mi amor. Sonrisas que desprenden tu ser, al sentirme dentro de tu corazón.
  
-
-
-
-
-
 
 Hoy siento un nuevo latir, pues tu mirada me hace sentir caricias en mi ser, y gozo en mi corazón. Amor desnudo está mi corazón, ante la tierna sonrisa de tu ser.
  
 
-
-
-
-
-
 Suspiros de amor de un ser enamorado, que como la niebla se deja acariciar por las brisas del aire que suavemente la esparce por los montes y valles, inundando con mi amor todo el mundo haciendo desaparecer el temor.
  
-
-
-
 
 Siento en mi ser, serena y gozosa paz. Amor mío, abro las puertas de mi ser, para que mi luz ilumine tus pasos hacia mi latido de amor. Es como la fragancia de las rosas, así con mi luz y mi aroma, quiero endulzar tu vida y ser las manos que te eleven a las estrellas, y desde el cielo, los dos nos fundiremos en un suspiro de amor. Fundido en ti, nuestro amor será eterno, mi vida.
  
 
-
-
-
-
 Duerme, duerme mi amor, que cuando despiertes mi ser, se derretirá de amor al besar tu corazón. ¡Oh, Dios!, sediento está mi ser de tu amor. Sueños de compasión derriten mi Ser, al sentir tu dulce sueño en mi ser, mi amor.
  
-
-
-
-
 
 Si con uno de mis besos, bastase para crear la alegría en tu corazón, no te daría uno, sino un millón. Pues mis besos, son tiernos, suaves y muy profundos. Tanto como profundo es el océano, e inmenso en amor, como inmenso, es el cielo. Y crearía, con ellos, el camino para inundar tu corazón de amor.
  
 
-
-
-
-
 Cuando acaricio tu piel con la suavidad de mis dedos, me transmites la ternura de tu corazón, piel de dulce sabor que, al toque de mis labios, se estremece lo más oculto y delicado que tu guardas para mí. Amor, solo tuyo soy, y fundirnos en nuestro interior es alcanzar el cielo, en suspiros de amor.
  
 
-
-
 Princesa de mi corazón, que me alegras la vida en cada amanecer. Lejos estoy de ti, pero mi corazón late, sintiendo la caricia de tu boca en mis labios, y la humedad de tus besos me transporta al más delicado sabor de amor. Que la suave brisa del aire te lleve mi beso de amor, que mi corazón creó para ti con las más delicadas fragancias de mi ser, y que las caricias de mis labios en tu mejilla, te hagan estremecer de placer como el primer beso que te dieron, amor, pues quiero que me sientas en tu interior como ese bombón, como la mermelada más rica en tu boca, qué te hace sentir el cielo en tus labios.
  
-
-
-
-
-
 
 Me siento nervioso y tiembla mi cuerpo, ¡qué poder más grande tiene tu latido de amor!, que en la distancia hace vibrar todo mi ser, al sentir la cálida y suave fragancia de tu amor.
  
 
 
-
 Hoy en mi meditación, he transformado mi ser en fragancias de jazmín, azahar y rosas. Con ellas quiero iluminar tu vida, con la fragancia del azahar, inspirar tu personalidad, con el perfume de las rosas envolver tu ser, y con la esencia del jazmín enamorar tu espíritu. Así, embriagada de fragancias de amor de mi ser, hacerte alcanzar las estrellas, y yo, enamorado de ti, convertiré mi espíritu en el camino donde tú, mi amor, irradies tu luz.
  
-
-
-
 Ser mío, tú qué sabes de la magia del espíritu, irradia tu bendición, y con tu amor la libertad de mi corazón, reinará en un nuevo amor sin temor. ¡Corazón de compasión! Aquel que levantó la mano de amor convertida en terror, encadenado, estará hasta que pague su terror, pues su ignorancia le creará un gran dolor. Y Tú, mi corazón, ascendida a las esferas de mi amor, nutriré tu sentir con el aliento de Dios.
  
-
-
-
 
 
 El amor es como un río, unas veces viene manso, otras salvajes, incluso en cascadas y otras veces se evapora el agua y el río se queda seco. Así pues, bebamos del manantial de la vida, y que este manantial nunca se agote, pues solo, solo tu corazón, hará brotar, las aguas de la vida.
  
 
-
-
-
 Mi amor, me preguntas si te quiero, ¿si te amo? Te amo como jamás amé, por eso, te quiero, pero, más aún, yo quiero ser el camino por donde tú, mi vida, recorras para ser la estrella más preciosa. Amor, yo quiero, ser, la montaña y en su cima más elevada, verte cómo iluminas mi camino. Amor, yo quiero que tú seas la luz de mi amanecer cada día, y al despertar junto a ti, regalarte las más bellas flores del universo.
  
-
-
-
-
 
 Felicidad, serena y gozosa, amor y paz, que inunda todo mi espíritu como la más delicada fragancia, paz que en este ahora fluye por mi piel, como manantial de aguas cristalinas para saciar tu sed de mi amor.
  
 
-
-
-
 Tus pupilas, inundan mi ser, con la fuerza de un huracán, fuego en mi espíritu que ilumina tu ser con la fragancia de mi corazón. Te diré que cuando mi ser, piensa en ti, es como la erupción de un volcán, pues hasta mi cuerpo se estremece de terremotos en mi piel, y solo mi corazón sabe que, con un solo beso de tus labios, todo mi temor desaparece.
  
-
-
-
 
 Quiero que sepas, que te amo tanto, como mis pulmones necesitan respirar el aire, que da vida a mi cuerpo. Te amo tanto que la luz del sol, palidece ante mi palpitar, desbocado por tu mirar. Te amo tanto, que mi ser, se vuelve perfume, para infiltrarme dentro de tu latir, para de este modo hacerte sentir el amor que siento yo por ti.
  
 
 
-
 Rosa, rojo intenso es tu color, fascinan los ojos que te miran, embriagando con tu color, los corazones que aspiran tu fragancia de amor. ¿Por qué será que tu color vuelve loco el corazón? Solo tiene una explicación, rojo granate es tu color como el amado flujo del corazón. Sangre roja intensa, circula por los corazones, rojo intenso es mi amor por ti, con tus delicados pétalos me hice las paredes de mi corazón, para ti mi dulce jazmín.
  
 
-
-
 Retirado del mundo, y como compañía el silencio que genera la soledad del camino. Quiero hacerte llegar el sonido que genera mi pequeño latir, sonido que, al contacto con la luz del ser, se convierte en perfumes de amor que elevarán tu corazón, exclamando tu canto de amor. Yo, te doy todo lo que mi ser guarda celosamente para ti, guárdalo como guardas tu corazón para mí, que con su suave latir llama mi ser, para que te cante melodías de amor, con mi suave voz.
  
-
-
-
 
 
 Efímero es el latir de mi personalidad, pero eterno es, el palpitar de mi espíritu. Que así, como el aletear de una mariposa, hace surgir los huracanes, de esta forma, mi espíritu te hará vibrar, con mi sencillo mirar. Creando en tu corazón fragancias de amor.
  
 
 
-
-
-
 Sabes, cuando cierro los ojos, pienso en ti, y con máxima atención siento tu piel, tus labios, tu aroma de mujer, cálido tu cuerpo, que me hace temblar de pasión…… Siento cada vez más la caricia de tus labios en mi piel, y me estremece tanto placer, al sentir tu piel con mi piel.
  
-
-
-
 
 La rosa anclada con sus raíces en la tierra, no puede acercarse a ti, pero sí, a través del viento, puede llevarte su fragancia. Yo en mi distancia no puedo estar junto a ti, pero utilizo mi ser para acariciar tu corazón, y besar lo más oculto que guardas para mí. Así amor, mi vida, yo en la distancia utilizo mi espíritu, que soy yo, con la suavidad de la rosa, como mi fragancia de amor para nutrir tu vida, con una mirada de mi ser.
  
 
-
-
-
 Hoy soñé, que besaba tus labios, pues sediento estaba de tus besos y mi ser, voló hasta tu sueño y en él bebí del manantial de tu boca, pero como manantial de aguas cristalinas que renovaría mi sed de ti, no fue así, pues el manantial de tus besos hizo de mi ser, cautivo de tu agua cristalina, que emana de tu boca, y sediento de tus besos, desperté y esclavo quedó de tus labios de amor.
  
-
-
 
 Amor, mi amor, miro tus ojos, y cogidos de la mano, paseamos por la calle. Siento tu cálida y dulce piel, juntas tu mano y la mía, entre tus dedos voy acariciando tu mano, con delicadeza voy moviendo mis dedos y con toda la dulzura de mi ser, dejo que mis dedos recorran un poquito de tu piel. Más me paro frente a ti, tú me miras sorprendida, y acaricio tus mejillas con mis dedos, y suavemente me acerco a tu boca y beso tus labios suavemente, pues a través de ellos mi corazón toca tu ser de amor. Yo en la delicadeza de sentir tu piel en mi ser vuelo hasta Dios, para dar gracias por tu amor.
  
 
-
-
-
-
-
 El corazón es el reflejo del ser, nutre tu corazón con la vida del ser, que es la manifestación del amor.
  
-
-
-
-
-
 Te recuerdo de mi vida pasada, lo sé, porque mi ser sabe de ti, y en sueños veo una silueta de mujer que tímidamente se acerca hacia mí, y cuando intento ver su rostro, su luz, ciego me deja de amor, ya que el latido de su ser, inunda mi espíritu bañándolo con su luz de amor.
  
-
-
-
 Hola, amor mío, frente a ti estoy escribiendo estas letras y solo para ti. Quiero decirte, que la sensibilidad que observas y sientes, es a semejanza de la fragancia de las flores o de un simple poema de amor. Es el reflejo de la sensibilidad de tu corazón. Sensibilidad como la caricia de los pétalos de las rosas, cuando son acariciados por tus labios. Labios con la dulzura del néctar de las rosas que su fragancia enamora los corazones, con su delicado color de amor. Amor, tú que estás frente a mí, delicados tus labios como la frágil textura de los pétalos de rosas, así es tu latido de amor, delicado y sutil que me hace vibrar con tu amor vital.
  
-
-
-
-
-
 
 Susurros es mi canción de amor, que te llevará a la gozosa sensación de paz, que reina en el lago de aguas cristalinas, del amor celestial.
  
 
-
-
-
-
 Tú eres culpable que en mi ser brille la luz, pues tu mirada, prendió fuego a mi corazón; y ahora, mi espíritu, en combustión continua, derrama el fuego del amor. Así, por este motivo, te daré un abrazo y un gran beso, para nutrir tu vida con mi amor.
- 
-
 
 Dirás que estoy loco, o que estoy fumado, no importa mucho, solo intento con palabras muy sencillas explicar lo que a través de mi conciencia siento al mirar a mi alrededor. Es como ir, bailando, un baile en el cual tú, solo te dejas ir, flotas, vuelas, sientes y vives dentro de tus semejantes, pero sin invadir su intimidad, todo a mi alrededor es como respirar y volar a través de perfumes de jazmines, rosas y azahares, pues miro y siento la delicadeza y fragilidad de tu expresión en lo más interno de mi corazón, y mi ser exhala los perfumes más delicados de miles de flores para que tú, mi vida, descanses recostada en mi pecho, pues solo amor con perfume de jazmines y azahar, envueltos en los más delicados perfumes de miles de rosas, es para ti mi amor y, yo, bailando y flotando a tu alrededor, irradiándote todo mi amor…
  
-
-
-
-
 
 He convertido a mi ser en aire, y con las alas del viento, vuela mi espíritu, para acariciar tu respirar, más cuando respires el aire, penetrar en tus pulmones, y con la ternura de mi amor, enamorar tu corazón.
  
 
 
-
-
-
-
 Mi espíritu, a través de mis ojos, quiere iluminar tu ser, para disipar el temor de tu corazón, con el latido de mi amor.
  
-
-
-
 
 Sueños del ser mío, soñé mi vida anterior. Fui filósofo y poeta, sueños del ser mío que, recordando tu dolor, amada mía, oprime mi corazón haciéndole brotar lágrimas de sangre, y recorriendo las venas de mi cuerpo, van grabando tu nombre, en cada poro de mi piel. Así cuando mi espíritu respira, exhalan fragancias de amor acariciando tu nombre, para alivio de tu dolor.
  
 
-
-
 Te diré, que tus ojos, son preciosos, y que, a través de tus pupilas, irradia el amor que colmará el mundo con la fragancia de tu corazón. Quiero que sepas, que no me olvido de ti, pues formas parte de mi corazón. De esta forma cada vez que palpita, te irradiaré mi amor, y con mi conciencia enfocada en tu ser, desde lo más oculto de mi ser, te envuelvo con la luz de mi espíritu disipando tu temor, más la luz y el amor de mi ser, te iluminará el camino, de esta forma, tú mi vida, serás la paz y el amor que calme la intranquilidad y el temor, a tu alrededor.
  
-
-
-
-
 
 Soy, como una florecilla de jazmín, sencillo, simple, frágil, sensible y con su blanca timidez, transformada en fragancias de amor, para enamorarte cada día en tu despertar, con mi suave perfume de amar.
  
 
 
-
 Esta noche te enamoraré, con el suave canto de mi corazón, con sus suaves latidos de amor, lentamente, muy lentamente, así como sus latidos sin prisas y con su lento palpitar, así mi amor, muy suave, te endulzaré con mi cantar de dulce amar. El tiempo se detuvo en mi corazón. Extraño tu amor, pues hasta que tus labios no me besen nuevamente mi corazón, seguirá parado en el espacio, hasta que tu estrella mía, lo vuelvas a iluminar con tu amor.
  
-
-
-
 
 El amor es el motor que mueve al ser humano a ser feliz. Si no te amas a ti mismo, ¿cómo vas a empatizar y amar a tus semejantes? Presta atención en tu interior, y descubrirás tu verdadero ser, disipando las nieblas que envuelven tu corazón y mente, más con el amor del corazón ilumina tu mente para irradiar la felicidad de Ser, así no pensarás si te hacen el bien o el mal, solo irradiarás el amor de tu ser.
  
 
 
-
-
-
-
 Amor, amor densa energía y dulce como la miel. Así mi amor son tus dulces besos que enloquecen de placer mis labios y hacen florecer mi ser, con poemas de amor para tu corazón.
  
-
-
-
-
 
 Aire que respiro, y me hace palpitar mi corazón, aire que me das el aliento de vida, llévame en tus alas hasta mi prometida. Deja que acaricie su ser con el aliento que me da la vida… Amor, acariciaré tu corazón con los latidos de mi ser, que como suave seda te impregnará de las fragancias de mi corazón.
  
 
-
-
 Bien amada, quiero decirte, que mi espíritu está derritiendo mi ser, y convirtiéndola en néctar de amor, para que cuando tus labios toquen mi boca, inundar tu corazón con las más exquisitas fragancias de amor. Eres mi princesa, y la reina de mi corazón, más cuando tu voz suena en mis oídos, hace germinar miles de flores en mi ser y, embriagas mi corazón con la suave melodía de tu sonrisa, despertando en mi interior, la flor de la pasión. Mi ser, a semejanza de un velero, navega por los océanos del ser, y llegando al puerto de tu ser, saciaste de amor mi corazón.
  
-
 
 Es imprescindible para la existencia de todo ser vivo, pero inadvertido, en el vivir diario del ser humano, sumergido en el laberinto de sus pasiones, pensamientos y emociones. Es invisible a los ojos del ser humano, y por ello parece insignificante, pero sin él, no existiría la vida, pues en sus alas invisibles lleva el alimento que hace latir tu corazón. Así quiero ser, invisible, imprescindible e insignificante. Quiero que, en las alas del aire, mi ser y mi existencia, se difundan como el oxígeno que lleva el aire, para alimento de tu ser y el sustento de tu corazón.
  
 
-
-
 Cierro los ojos, y olvidándome de mi cuerpo, mis emociones y pensamientos, me dejo llevar por la caricia del silencio, que me lleva en sus alas. Alas de suaves ondulaciones, que, por el espacio sin fin, me hace surcar los océanos de colores que, con su alegre canto de amor, me impulsan a penetrar en el canto silencioso de la vida. Canto de vida, preñado de amores de lindos colores que me llevan a sentir tu cálido latir. Un latir de vida silencioso, y envuelto en perfumes de intuición, que es el canto de amor de mi corazón por ti.
  
-
-
 
 Estaba durmiendo y soñé contigo. En mi sueño, vi tu verdadera imagen. Ocultas muy bien tus sentimientos, pero el latido de tu corazón, no puede engañarme, por eso he creado este poema para ti: Tu mirada, tu voz y tu personalidad, ocultan tras tu corazón, los sentimientos de amor, pero el latido de tu corazón, llega hasta mi ser, generando la vibración que ha creado en mi vacuidad de ser, el eco de amor que llegará hasta tu interior, creando un nuevo latir de amor, disipando tu temor.
  
 
-
-
-
-
 Elixir de amor, bebí del manantial de tu corazón. Volviéndome loco de amor. Quiero besar tus labios de pétalos de flor, para embriagarme, comiéndote la boca mientras hacemos el amor y llegar hasta tu corazón. Así sentirás dentro de tu ser todo mi amor.
  
-
-
-
-
 
 Las aguas de tu vida bañan los campos de mi corazón, haciéndole florecer siete mil millones de flores, con siete mil millones de perfumes y colores. Siete mil millones de galaxias en un palpitar de tu corazón, embriagando mi Ser de Tu amor.
  
 
 
-
-
-
 Prendiste fuego, a la mecha del polvorín de mi ser, y mi corazón, como caballo desbocado, galopa hacia ti. Loco de amor, con el corazón envuelto en llamas de dulce amor. Dulce amor que se fundirá en tus labios, para hacer de tu corazón, una primavera eterna de amor.
  
 
-
-
-
-
-
 El aire me trae en sus alas, pétalos de flores, y al contacto con mi piel, renace en mi corazón los recuerdos de tu cálido amor.
  
-
-
-
-
-
 Mi ser es un río, que busca las orillas del mar, para fundirse en sus profundidades, y obtener la identificación con el todo. Así mi ser, busca tu espíritu, para fundirme en tu corazón, y expandir nuestro amor a los océanos del universo.
  
-
-
-
-
-
 
 Perfume de canela y azahar con sabor a miel, son tus besos, fragancias a jazmín cuando penetro dentro en tu corazón, saboreando tu dulce néctar de amor.
  
 
-
-
 Al identificarme como ser y sentir tu ser, igual a la mía, siento un gran amor. Y por eso mi personalidad, embriagada, está de ti y tu amor. Pero mi espíritu, que emana la vida, siente amor hacia todos los seres. Gozoso soy en la dicha de la vida, que, revestida de amor, se irradia sin distinción. Así embriagado por la vida y sus vapores de amor, mi conciencia naufraga sin rumbo hacia tu corazón, como punto inicial de amor, hacia todos los seres. Loco estoy de amor, por cada corazón que palpita reclamando amor.
  
-
-
-
 
 Eres como una pequeña florecita de un prado verde, que al despertar el día asoma sus pétalos a la luz del sol, pensando que al mediodía se sentirá abrumada por la intensidad del calor. Pero una brisa de aire fresco acariciará tus pétalos de amor, dejándote un suave rocío, que te hará florecer, pudiendo expandir tu amor, como estelas de estrellas, inundando el firmamento.
  
 
-
-
-
-
 Amor mío, no estés triste porque estés sola. Tú has de saber que, en alas del aire, nuestro poema de amor, lo llevan las brisas del aire que acariciarán tus mejillas, susurrándote a los oídos, nuestra canción de amor.
  
-
-
-
-
 
 Luz de primavera es tu sonrisa de amor, manantial de alegría brota de mi corazón cuando tus labios acarician mi piel. Labios de miel que endulzan mi vida, al sentir en mi corazón el sabroso néctar de tu amor.
  
 
-
-
-
 Como nubes de algodón es mi amor, que inunda tu corazón de mimos y sabor a fresa. Mimos, ternura y amor, solo comparables a las caricias de amor, hacia un recién nacido que, con todo cariño, das de beber del manantial de tus pechos, leche de dulce miel. Así mi amada, te llevaré en mi pecho, al son de los latidos de mi corazón.
  
-
-
-
 
 Necesito llenarme de ti, quiero saborear tus labios, para inundar mi corazón con tu amor. Pues pálpitos de amor siento en mi pecho, pálpitos de amor se renuevan en mi corazón al identificarme contigo mi vida. Reflejo soy, de la luz de tu ser. Ser gemela a la mía, que a un solo palpitar de la vida, iluminas mi ser, y embriagas mi corazón, con tu dulce mirar
  
 
-
-
-
-
-
 Luz de nuestro amor, que empequeñecen las estrellas del cielo, al resplandor de tus lindos ojos de amor.
  
 
-
-
-
-
 Como un río bravo y caudaloso, es el amor que siento por ti, y en sus aguas generosas de remolinos de amor, encuentro el impulso hacia tu corazón. Remanso de paz, cuando tus besos, inundan mi ser, desbordando mi corazón de amor.
  
-
-
-
-
 
 Hoy es un día muy especial, y por ello, he seleccionado del jardín de mi ser las más bonitas flores, azucenas, amapolas, rosas y jazmines para que con su fragancia, te recuerden el amor que siento por ti mi vida.
  
 
 
-
-
-
 Mi vida, sin tus besos, no sé vivir, sin tus besos me siento náufrago. Pero cuando tus labios acarician mi boca, siento fuego en mi corazón, fuego que ilumina mi ser, para envolverte con todo mi amor.
  
-
-
-
-
-
 
 Acaricia mi ser, tu dulce mirada y suenan cantos en mi corazón, que vuelven loca mi razón.
  
 
-
-
-
-
-
 Como Estrellas fugaces son tus besos, al penetrar en mi corazón. Estrellas fugaces que se quedan dentro de mi ser, para construir un universo repleto de besos de tu esencia.
  
-
-
-
-
-
 
 Tu llegada a mi vida, es como la llegada de un huracán, que, al embestir sus vientos, abrió las puertas del ser, para que enamores mi corazón, con tus cálidos y dulces besos de tierno amor.
  
 
-
-
-
-
 Loco de mí, siempre mirando al cielo en busca de mi estrella, y mira mi amor, he aquí que apareciste frente a mi corazón. Iluminando mi ser, y creando en mi interior un jardín de amor y sus flores solo se abren y esparcen su fragancia, cuando tus lindos ojos me miran derramando tu amor.
  
-
-
-
-
-
 
 Mi vida, si algún día por cualquier motivo dejo de estar junto a ti, mi vida. Mira el cielo estrellado, y mira con atención, verás una diminuta estrella palpitando. Es mi ser, que palpita por tu corazón.
  
 
-
-
-
-
 No puedes luchar contra las olas del mar. No puedes luchar contra el ímpetu de un huracán. No puedes luchar contra la lava de un volcán. Así, yo no puedo, ni quiero, luchar contra la fragancia de tu amor, que me hace renacer en cada amanecer.
  
-
-
 
 Presta atención, al silencio que reina en el interior de tu jardín, pues, el ruiseñor de tu ser cantará siempre para ti. En un lugar llamado ser, donde mi mente, no recuerda haber estado. En ese lugar donde los sueños germinan en silencio, allí donde la vida nace en cada despertar. En ese lugar yo quiero estar, y ver renacer junto a ti, el porvenir. Junto a ti, quiero despertar en cada amanecer. Junto a ti, quiero amanecer y acariciar tu corazón, con mi suave canto de amor. Junto a ti, quiero ser el perfume que te embriague en cada despertar. Junto a ti, quiero estar, para darte los tesoros de mi ser, que tan celosamente guardo para ti. Junto a ti, quiero ser, la melodía que borre tu dolor convirtiéndolo en fragancia de amor.
  
 
-
-
 Inquieto y nervioso está mi corazón, como el niño que espera su regalo de cumpleaños. Como el enamorado, envuelto en la emoción de su primer amor. Así, espero a que mi ser, me ilumine su camino con la luz de la intuición, para darte a ti mi amor, la joya más preciosa que guardo en mi interior. Tembloroso está mi corazón ante el porvenir incierto de tu amor, pero como mi corazón solo es de mi cuerpo y no de mi ser, ella sí sabe de tu querer, pues con solo mirarte hace apaciguar este corazón de papel.
  
-
-
-
 
 Ser mío, tú qué sabes del querer humano, que tu energía de amor llegue allí donde exista dolor y desamor, que tus palabras resuenen en los corazones como el canto del ruiseñor y como la luz del amanecer, pues solo una sonrisa viniendo de ti, me hará sentir el latido de mi corazón en ti. Quiero escapar por mi mirada y compartir contigo, lo más oculto de mi Ser. Ser que solo es, contemplando tu Ser.
  
 
-
-
-
 Mis lágrimas recorren mis mejillas, llegando hasta mis labios. Sabor amargo de mi llanto, llanto de un corazón desesperado; desesperado de amor por Ti. Corazón desesperado, que nublan mis ojos, con las lágrimas de tristeza, por la desesperación del sentir humano, que no siente a su hermano.
  
-
-
-
 
 Tus besos acarician mi ser, llenándola con fragancias de tu corazón. ¡Oh, amor mío!, has convertido a mi corazón en el jardín de tu amor. Te voy a confesar una cosa, existe tanto calor en mi ser, que se derritieron sus paredes, derramando mi vida, transformándose en vapor, y como densa niebla, se expande por la tierra, más su rocío, germinará el amor en tu corazón.
  
 
-
-
-
-
-
 Yo, payaso y bufón, de la corte de mi señor, quiero hacerte enamorar de risas, con mis poemas de amor, para que desaparezca de tu corazón, la tristeza y el dolor.
  
-
-
-
-
 
 Te contemplo, y explota mi ser, y mi corazón se fragmenta en fragancia de estrellas, que el aire llevará al cielo, para iluminar la noche más oscura. De esta forma mi corazón, hecho polvo de amor en alas del viento, te inundará con todo mi ser.
  
 
 
-
-
 Mi amor, hoy te cantaré con la voz de mi ser, sonidos de armonías de suaves fragancias. Aromas del corazón, que suspiran por besar tus labios cálidos y sabrosos, como sabrosa es la dulce miel. Canto insonoro que mi voz, como frágil susurro de amor, lleva en el aire las melodías de los ángeles, que, con su luz, te harán sentir mi cálido latir en tu ser y en tu corazón. Y que, con la luz de sus corazones, iluminarán esos lindos ojos, que, a semejanza de dos soles, irradian amor.
  
-
-
-
-
 
 Recorrí todos los caminos de la tierra, en busca de mi amor, para que su fragancia inundara tu corazón. Pero qué loco de mí, y tonto, pues no vi, que mi amor estaba encerrado dentro de mi ser, pues solo miré con el deseo de un corazón, dolorido por el desamor.
  
 
-
-
-
-
 En la botica de mi corazón, encontré este bálsamo de amor, para alivio de tu dolor. Bálsamo de delicada fragancia, con ella hice este ungüento de amor. Cálido y dulce néctar tus besos, que inundan mi ser, y enloquecen mi corazón, con el perfume de tu amor.
  
-
-
-
 
 Hablo de Amor y no de emoción sentimental, ni sexual, es un amor que roza la indiferencia. Toque mágico del ser que solo en lo más profundo del Ser, hace germinar los latidos del sentir humano, latidos que florecen en mi voz, exhalando perfume de amor. Al identificarme con las personas, estén donde estén, late mi corazón. Fuente de amor e intuición que nacen de mi ser.
  
 
-
-
-
 Mi espíritu se me escapa por mi mirar, alcanzando tu corazón. Invisibles energías son las que vienen hacia mí, pálpitos de tu razón de Ser, que me hace sentir el dolor que existe en ti. Salgo en busca de la niebla, quiero sentir su rocío en mi rostro, quiero sentir cómo la niebla penetra en mis pulmones, para nutrir las semillas de amor que encierra mi corazón, para ti mi amor.
  
-
-
-
 
 Una palabra bastaría para aliviar el dolor que siento en mi corazón. Una sola palabra, saliendo de tus labios, la primavera sería eterna en mi ser, y de mi corazón emanaría la más exquisita fragancia de amor. Esperando que tu boca exclame el sentimiento de tu corazón, muero sin morir, con mi ser, muriendo de dolor.
  
 
-
-
-
-
-
 Una brisa de aire fresco acariciará tus pétalos de amor, dejándote un suave rocío, que te hará florecer, pudiendo expandir tu amor, como estelas de estrellas, inundando el firmamento.
  
-
-
-
 
 Gozo de amor al fundirme en tu interior. Dulce placer volver a comer las mieles del amor, de tu boca, mi vida otra vez. Fruta del paraíso es tu sonrisa. Comer la fruta madura de tu amor. Dulce pasión, saborear tu dulce boca, me hace enloquecer de amor, al sentir el sabroso jugo de la fruta de tu paraíso de amor. Ahora que tus labios son míos, placer de amor, comer tu boca y dejarme naufragar en el gozo de las mieles de tu amor.
  
 
 
-
-
 No estés triste porque estés sola. Has de saber que, en alas del aire, nuestro poema de amor, las brisas de aire te acariciarán las mejillas, susurrándote a tu oído: cuéntame cosas bonitas, cuéntame cosas de amor que alegren mi corazón. Amor es la luz de tu mirada, amor es el color de tus ojos que ilumina mi camino, amor es el olor de tu piel a canela y miel, amor son los besos de tus labios que vuelven loco de amor a mi corazón.
  
-
-
-
-
-
 
 Acaricia mi ser, tu dulce mirada, y suenan cantos en mi corazón, que vuelven loca mi razón. Tengo el corazón en llamas, pues miré en tus ojos, y me prendió fuego tu amor.
  
 
-
-
-
 Mi Ser, a semejanza del océano, quiero que mis olas de amor, bañen tu ser, pues necesito acariciar tu Vida besando tu corazón. De esta forma me llegará el suspiro de amor, que emite tu espíritu y que enamora mi corazón. Ternuras de tus latidos que acarician mi corazón, creando oleadas de compasión al recibir de ti, el toque mágico de tu amor.
  
-
-
-
 Mi querida amiga, Sentí cómo el aire me habló de ti, caricias aterciopeladas de perfumes de miles de colores, ahogaron mi respirar y paralizaron mi latir, al sentir el sufrir que el perfume del aire me dejó de ti. Amargo dolor que el aire me dejó en mi corazón. Yo quiero disolverme en el aire, y ser el aliento que vitalice tu corazón y dé nuevo impulso a tu Ser. Por eso cuando respires, has de saber que en tu aliento lleva hacia tu interior, la fragancia de mi corazón.
  
-
-
-
-
 Como loco estoy dentro de mí, pues solo oscuridad inunda mi Ser. Oscuridad que desesperadamente echo fuera de mi corazón, toda esta oscuridad que me ahoga y me hace perder mi realidad de Ser. Esta oscuridad se vuelve ante mis ojos, luz y amor, cuando tocan tu corazón. Triste de mí, que vivo en la oscuridad de mi ser, y solo veo la luz y el amor cuando contemplo tu corazón inundado de amor.
  
-
-
-
-
-
 Encerrado en mi Ser, lloro eternamente. Llanto de amor, convertido en remansos de aguas cristalinas de amor y compasión donde, tú, mi amor, podrás bañar tu corazón.
  
-
-
-
-
-
 Mi ser se disuelve en el espacio, creando turbulencias de amor en el aire que respira todo ser. Turbulencias de cálida ternura, que, al contemplar tus ojos y tu dulce sonrisa, que iluminan el mundo de amor.
  
 
-
-
-
-
 He aquí mi ser, es un ramillete de flores de miles de colores, es para ti, pues a mí solo me sirven para embriagarte con la fragancia del sonido, que produce el color de la vida, que sustenta el sonido armónico del silencio.
  
-
-
-
-
 Con una copa de néctar en mi mano, recuerdo el primer beso, que arrebató la paz a mi ser. Paz que nunca volverá, hasta que la ternura de tus labios, devuelvan la paz a mi corazón, e inspire a mi ser, para enamorarte, con un beso de amor. Acaricia mi corazón, la suave fragancia de tu amor, y hace naufragar a mi ser, por los océanos de amor, revelando a mi espíritu el camino hacia tu corazón.
  
-
-
-
-
 
 Pétalos de miles de flores, recoge mi corazón, y con la magia de mi ser, alquimia divina, para alivio de tu dolor. Fragancias de colores, que mi corazón, bombea en perfumes de amor, embriagándote en este otoño, que será tu primavera eterna, en tu ser.
  
 
-
-
 Dentro de mi ser, tempestades y huracanes de amor, desbordan mi Ser. Creando ríos furiosos de vida y compasión, que peligrosamente se acercan a mi corazón. ¡Oh, Dios!, que con las tormentas que ahogan mi corazón, se desborda mi conciencia en este eterno ahora. ¿Por qué un sentimiento se vuelve feroz, como un fuego incontrolado en las pasiones del miedo? Si esto sucede es que, en tu corazón, aún residen semillas del temor. Cuida que en tu corazón solo exista el amor, mímalo, cuídalo, como el que cuida de un recién nacido, pues estas semillas de compasión serán la luz y el amor, que aliente el camino a tus semejantes con el aliento de Dios.
  
-
-
 
 Mi sangre, como pólvora encendida, brota por mis venas, en busca de tu corazón. Salvaje locura de amor, que enciende mi pasión. Pasión divina de amor, que ilumina mi ser, y derrite mi corazón. Dulce placer, saborear las mieles que desprenden los labios amados. Susurros de amor, que hacen arder el corazón. Corazón tembloroso, que siente miedo al pensar que te puede perder, amor, amor, dulce amor, pasión que engolfa mi corazón de ilusión.
  
 
 
-
-
-
-
 Susurros de amor, desprende tu corazón. Suave, y pausado caminar que irradia el gozo del Ser amado.
  
 
-
-
-
-
 Tengo una sonrisa en mi ser, pues cuando te miro, mi ser quiere escapar por mi mirada hacia ti, y compartir mi sonrisa en tu Ser despertando el amor a nuestro alrededor.
  
-
-
 
 En lo más profundo de mi espíritu, mi conciencia, goza revoloteando por los sonidos increados. Sonidos armónicos que, penetrando en mi ser, y creando los colores del arcoíris; al identificarse con las lágrimas de mi corazón. Arcoíris, que llevará hasta ti, el amor de mi vida, que se desliza por los aires, para nutrir tu corazón, con la suave melodía de la creación, creando en tu interior, los sonidos armónicos, que manifestarán en tu corazón, el arcoíris de amor.
  
 
 
-
-
-
-
 Volcanes hay en el mundo que expulsan lava. Mi amor, pero ninguno como el de tu corazón, que derrite mi ser con el resplandor de tu Amor.
  
-
-
-
-
-
 
 En perfumes de rosas, quiero transformar mi corazón; envueltos en regalos de amor.
  
 
-
-
-
-
-
-
 Mi ser vuelve a ti, para nunca abandonarte, pues sin ti, No existe camino para mí.
  
-
-
-
 
 Siento en mi interior, la suave melodía de mi ser. Melodía que hago llegar, hasta tu corazón, y con ella, acariciar tu interior con mis palabras de amor. Caricias como pétalos de flores que dejarán en tu corazón, miles de fragancias, embriagando tu ser, con las semillas de mi corazón. Creando en tu interior, el jardín de la dulce vida.
  
 
-
-
-
-
-
-
 El fuego consume mi ser, para que salga la luz de mi Ser. Es el latido de tu corazón, como el sol del mediodía, me derrite en el gozo de Tu amor. 
  
-
-
-
 
 Si con una palabra, bastase para decirte lo que mi ser siente cuando te miro. Con una palabra, bastará, pues cuando te miro, mi ser prende en llamas avivadas por la sonrisa de tu esencia. Fuego has convertido mi ser, fuego alentado por la única palabra que, al sentirla dentro de mí, hace expandir mi ser, a semejanza de las llamaradas del Sol. 
  
 
-
-
-
-
 Vida, mi amor, es tu latir al sentirla dentro de mí. Vida es tu aliento que me haces expandirme al firmamento. Vida mía, amor, es tu aliento que ha convertido mi ser, en fuego de amor para tu corazón.
  
 
-
-
-
-
-
 Te daré lo más oculto, encerrado en mi ser, que suspira por hacerte llegar la vida en tu despertar.
-
- 
-
-
-
 
 
 Quiero caminar junto a ti y juntos con nuestro respirar la vida, palpite iluminando el ser al caminar. Respiremos para que las conciencias se expandan en cada despertar. Respiremos como seres, para que todo a nuestro paso renazca en cada palpitar.
  
 
-
-
-
-
 Quisiera ser el aire que respiras y dentro de ti, llenarme con la esencia de tu ser, ser que me hará sentir el gozo de ser feliz. Felicidad preñada de primavera que con su perfume de amor hace desaparecer mi temor.
  
-
-
-
-
 
 Sabor de ti, es sabor de amor, amor que derrites mi ser con tu sabor. El sabor de tu amor, dulce néctar de compasión que inundas mi corazón.
  
 
-
-
-
-
 Cuando mis ojos contemplen tus pupilas, a través de ellas llegaré hasta tu corazón, y desde lo más recóndito de ti, te haré sonreír, acariciándote el corazón, con mis caricias suaves, y mi ser, creará en tu ser la sonrisa de amor eterno, que inundará de luz el mundo con tu sonrisa de placentero amor.
  
-
-
 
 En el jardín de mi ser, no existen paredes que limiten su paso, todos pueden entrar a través de sus muros de amor, para deleitarse con miles de flores, y perfumes. Más los frutos de sus árboles, son para saciar tu necesidad. Yo, solo puedo ofrecerte; un poquito de agua de mi vida, para ti. Pues, aparte de la que tú quieres coger, la que sobre, será empleada para el riego del jardín. Mi corazón es feliz, pues vuelve de nuevo a ti. Quiero que sepas que, sin ti, mi vida tiende a su fin. Necesito darte mi vida, pero no quiero nada a cambio. Mi mente quiere irse y no volver, pero mi ser, impulsada por mi Espíritu, quiere disolverse en ti.
  
 
-
-
-
 Si pudieses saber de mi amargo dolor, dolor del sufrimiento que rompe en millones de pedazos mi corazón. Tristeza de amor que, solo mirando desde mi interior, puedo reunir los millones de pedazos de mi corazón para curar la soledad que embarga mi ser. Pero mi ser vuelve a romper mi corazón en gotas de amor, lluvia de amor que caerá sobre tu corazón. El manantial de mi espíritu, inundó mi ser, y a semejanza de un lago de aguas cristalinas, se encuentra agitada por las tormentas de amor de mi corazón. No me pidas, que abra las compuertas de mi ser, pues naufragaría tu conciencia, en los torrentes de amor de mi corazón.
 
  
-
-
-
-
 Epílogo: El Jardín del Éxtasis
 Llegado el último suspiro escrito, no queda el vacío, sino la plenitud que ancla el ser en el eterno ahora. Hemos navegado por océanos de pasión, hemos caminado descalzos por jardines de intuición y hemos sentido el temblor que la eternidad causa al rozar lo cotidiano.
 La tarea de este poemario ha concluido: recordarte que la Llama está encendida en tu pecho. El amor que has leído en estas páginas no es una ilusión; es un reflejo de la fuerza que emana desde tu ser y que te une a todos los seres que palpitan a tu alrededor.
  
 
-
-
-
 Si alguna vez sientes que la niebla de la indiferencia te envuelve, no busques respuestas fuera. Vuelve a tu pulso. Recuerda la suavidad del pétalo, la calidez de la lava y el aroma del jazmín.
 Que el eco de estas "Fragancias del Corazón" te acompañe siempre, susurrándote que, incluso en la más profunda soledad, eres la estrella más preciosa, eternamente amada.
-
-
-
-
-
 
 
 La Voz del Maestro 
@@ -7454,16 +5850,9 @@ La Voz del Maestro
 La Parábola del Corazón
 
 
-
 Autor:
 Ricardo Milanés
  
-
-
-
-
-
-
 
 
 Libros del Autor:
@@ -7473,10 +5862,6 @@ El Maestro Pedro “El Canto Insonoro del Alma” (místico Espiritual)
 Fragancias del Corazón (Poemario)
 El Canto Invisible del Alma (Poemario)
  
-
-
-
-
 
  
 El Universo Interior
@@ -7496,7 +5881,7 @@ Primera edición digital e impresa: 2025
 Este libro fue escrito como una ofrenda, al corazón. 
 
 El propósito de esta obra es servir a la expansión de la conciencia y al reconocimiento del Maestro interior en todo ser humano.
-“La palabra es libre cuando nace del alma y regresa a ella.”
+La palabra es libre cuando nace del alma y regresa a ella.
 ________________________________________
 Créditos de edición
 Texto original, revisión y concepto espiritual: Ricardo Milanés
@@ -7506,9 +5891,7 @@ Diseño y maquetación: Ricardo Milanés
 Agradecimiento técnico
 A las herramientas que permiten que la voz interior encuentre forma digital, y a cada lector que convierte esta obra en un acto de comunión silenciosa.
  
-“Nada enseña el Maestro que el alma no sepa ya, solo pronuncia en voz alta lo que el silencio recuerda.”
-Autor:
-Ricardo Milanés 
+Nada enseña el Maestro que el alma no sepa ya, solo pronuncia en voz alta lo que el silencio recuerda.
 
  
 Nota del autor
@@ -8523,16 +6906,16 @@ Ricardo Milanés
 
 """
     
-    generation_config = {
+ generation_config = {
         "temperature": 0.7,
         "max_output_tokens": 1024,
     }
 
     try:
         model = genai.GenerativeModel(
-            model_name="gemini-flash-latest", 
+            model_name="gemini-1.5-flash", 
             generation_config=generation_config,
-            system_instruction=SYSTEM_PROMPT
+            system_instruction=system_instruction
         )
     except Exception as e:
         st.error(f"Error de conexión: {e}")
@@ -8577,9 +6960,7 @@ Ricardo Milanés
 if st.session_state.page == 'landing':
     show_landing()
 elif st.session_state.page == 'chat':
-    show_chat()
-
-
+    show_chat()  
 
 
 ### TU TONO Y VOZ
@@ -8665,6 +7046,7 @@ if st.session_state.page == 'landing':
 elif st.session_state.page == 'chat':
 
     show_chat()
+
 
 
 
